@@ -6,7 +6,9 @@ permalink: /About/
 
 # CAVE in the MELON of your demonic bad habits
 
-You know what you're doing wrong ... STOP IT ... and for pete's sake, STOP trying to fix me ... FIX YOURSELF
+You know what you're doing wrong ... STOP IT ... and for pete's sake, STOP trying to fix anyone else ... FIX YOURSELF FIRST ... and when people see you have no problems, maybe they will come ask you for help ... and maybe they won't ... if they are serious about overhauling their lives, then you can help them cave in the melons of their demons also, as you did with yours. 
+
+**Stop apologizing for perfecting your soul.**
 
 1) FIX your spiritual life ... STOP worshipping celebrities ... STOP playing church ... AVOID politicos
 
