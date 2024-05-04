@@ -26,5 +26,5 @@ You know what you're doing wrong ... STOP IT ... and for pete's sake, STOP tryin
 
 9) Stop enabling addicts, time wasters and people who need or want friends to engage in bad habits with them
 
-10) NEVER EVER LOOK IN THE REAR VIEW MIRROR ... let the dead bury their dead.
+10) NEVER EVER LOOK IN THE REAR VIEW MIRROR ... let the dead bury their dead ... kill off all of the zombie processes and intiators of zombie processes.
 
