@@ -6,13 +6,18 @@ categories: mission
 ---
 
 
+The weekly MelonCave podcast episode is available at [Meditative Pain Mgmt and Why Human Cognitive Processing Power Per Watt Dominates](https://app.libsynstudio.com/episode/47838/review).
+
+
 # Pain management / awareness / optimization might the optimal use of human processing power
 
 If humans developed disciplined competency in meditative pain management, they would not be able to avoid all pain, BUT they would be able to avoid letting the worry, fear, anxiety associated with pain MULTIPLICATIVELY scale the importance and focus of avoiding pain.  Obviously, putting rational pain management within reach of human beings would make a significant portion of, in not MOST of the purchases that power the global economy unnecessary ... which is one reason, why there would be IMMENSE resistance to actually allowing humans to learn to manage their own pain.
 
 When humans can learn to manage pain, they learn to manage their own processing power. The human brain is an incredibly powerful and efficient organ, capable of processing vast amounts of information and performing complex tasks with minimal energy consumption. However, much of the brain's processing power is used to fuel addictions OR to engage in hypochrondiasis or to catastrophize about fears and worries of increasing pain. The first set of exercise regimens that Melon Cave might want to address is the strategy for building the disciplines of meditative pain management ... in order to keep different forms of PAIN from consuming the processing power of the brain. 
 
-What follows below is THE START of an outline for a 200 module graduate/post-graduate level syllabus on cognitive strategies and neuroexercise for pain management.
+What follows below is the START of an outline for a syllabus for a year-long 200-module graduate lever or post-graduate level study on practical cognitive strategies and implementing a neuroexercise workthough routine for pain management and dealing with pain, *rather than running from it.*  
+
+**Changing the psychological stance towards pain is the first step in managing pain** *because the Reality of having pain in our lives ain't going away for any of us*.
 
 ## Introduction and Fundamentals (20 modules)
 
