@@ -4,9 +4,19 @@ title: About
 permalink: /About/
 ---
 
-# CAVE in the MELON of your demonic bad habits
+This repository is for a podcast called [***Melon Cave.***](https://five.libsyn.com/show/episodes/view/31126668)
 
-You know what you're doing wrong ... STOP IT ... and for pete's sake, STOP trying to fix anyone else ... FIX YOURSELF FIRST ... and when people see you have no problems, maybe they will come ask you for help ... and maybe they won't ... if they are serious about overhauling their lives, then you can help them cave in the melons of their demons also, as you did with yours. 
+# STOP the bad habits of being yourself
+
+REWIRE your brain ... cave in the melon of that passive moron who's become a product of his demons ... tell your demons to go back to HELL.
+
+You know what you're doing wrong, so it's simple ... just STOP IT ... STOP IT. 
+
+For pete's sake, STOP trying to fix anyone else ... FIX YOURSELF FIRST
+
+When people see you have no problems, MAYBE they will come ask you for help ... and maybe they won't, because PASSIVE VICTIMS tend to HATE success.  PASSIVE victims tend to BLAME others who have stop the bad habits of being themselves.
+
+When people are are actually serious about overhauling their lives ... then the melons of their demons have been caved in and there is hope.
 
 **Stop apologizing for perfecting your soul.**
 
