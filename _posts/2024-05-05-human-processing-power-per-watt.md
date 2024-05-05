@@ -6,7 +6,7 @@ categories: mission
 ---
 
 
-The weekly MelonCave podcast episode is available at [Meditative Pain Mgmt and Why Human Cognitive Processing Power Per Watt Dominates](https://app.libsynstudio.com/episode/47838/review).
+The weekly MelonCave podcast episode is available at [Meditative Pain Mgmt and Why Human Cognitive Processing Power Per Watt Dominates](https://sites.libsyn.com/499103/site/meditative-pain-mgmt-and-why-human-cognitive-processing-power-per-watt-dominates).
 
 
 # Pain management / awareness / optimization might the optimal use of human processing power
