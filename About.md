@@ -18,9 +18,11 @@ When people see you have no problems, MAYBE they will come ask you for help ... 
 
 When people are are actually serious about overhauling their lives ... then the melons of their demons have been caved in and there is hope.
 
-**Stop apologizing for perfecting your soul.**
+# Melon Cave is an ANTI-media media
 
-1) FIX your spiritual life ... STOP worshipping celebrities ... STOP playing church ... AVOID politicos
+**Stop apologizing for perfecting your soul** ... stop following celebrities ... stop playing church or longing for a great performance from the pulpit. **Perfect your soul.**
+
+1) FIX your spiritual life ... STOP worshipping celebrities ... STOP playing church; sermons are for zombies ... take back your prayer life; keep a prayer journal; BE the LIFE that defines your own media.
 
 2) STOP eating stupid shit ... STOP ever buying stupid shit ... start growing your own food
 
