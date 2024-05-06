@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Improving Cognitive Strategies For Pain Mgmt"
+title:  "Pain Mgmt Cognitive Strategies: Personalized Training Discipline"
 date:   2024-05-06 4:30:00
 categories: mission
 ---
@@ -21,9 +21,13 @@ The coursework spans from fundamental pain concepts to advanced subspecialty con
 
 ## Course Objective
 
-The **OBJECTIVE** of this course of study to **develop a personalized pain mgmt training discipline** that one uses every day to implement practical cognitive strategies and implementing a neuroexercise workthough routine for pain management and learning as much as possible from pain, **rather than running from it.**
+The **OBJECTIVE** of this course of study to **develop a personalized pain mgmt training discipline for improving cognitive strategies** that one uses every day to research, implement, and practice. The discipline of these practical cognitive strategies for pain management must be implemented through a neuroexercise workthough routine that involves guided imagery, visualization and self-hypnosis for pain management ... so that when pain arises, we learn as much as possible from pain and take time to notice how we react to it, **rather than running from it.** 
 
-Th objective IS NOT to make pain go away ... pain is a part of LIFE and a blessing in terms of the information our own lives as well as the empathy for others that the signal pain provide ... the objective is building this cognitive discipline is to reduce the noise and increase the value of the signal. **DISCIPLINE equals FREEDOM**
+*We might ultimately take a small dose of aspirin or other painkiller, but the objective of this methodology is to FIRST observe the pain, pehaps takes notes on how it feels and where it is located, and then to take a few minutes to breathe deeply and relax ... some might take a few minutes to visualize the pain leaving our body ... but most importantly, we must take a few minutes to notice how our mind reacts to the pain and to observe our objective thoughts and emotional feelings about it.*
+
+Th objective IS NOT about some form of magic ... we are not expecting that pain just magically goes away ... we are simply going to be more DISCIPLINED about reaction to it ... we are NOT going to hide from it and we are NOT going to rush to nuke it with painkillers -- we are going to OBSERVE and be more DISCIPLINED in our response TO REMOVE THE HYSTERIA AND OVERREACTION. 
+
+Pain is a part of LIFE and a blessing in terms of the information our own lives as well as the empathy for others that the signal pain provide ... the objective is building this cognitive discipline is to reduce the noise and increase the value of the signal. **DISCIPLINE equals FREEDOM**
 
 *Changing the psychological stance towards pain is the first step in actually USING pain as a aid to improve our lives and the lives of those around us ... because the Reality of coming across physical, emotional, spiritual pain that won't leave us alone in our lives just ain't going away for any of us*.
 
