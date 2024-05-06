@@ -11,12 +11,21 @@ The weekly MelonCave podcast episode is available at [Meditative Pain Mgmt and W
 
 # Syllabus for a year-long graduate level or post-graduate level study 
 
+This is only a SUGGESTED outline of an intensive multi-disciplinary curriculum drawing on knowledge from medicine, nursing, psychology, physical therapy, complementary medicine, theology, and other fields to provide a holistic and integrative approach to pain care. 
 
-The objective of this course of study to develop a personal training discipline that implements practical cognitive strategies and implementing a neuroexercise workthough routine for pain management and learning as much as possible from pain, **rather than running from it.**  
+The point is to put it INTO PRACTICE IN PAIN MGMT EXERCISE OPPORTUNITIES IN ONE'S OWN LIFE ... to **emphasize** non-pharmacological pain management strategies including meditation, prayer, and neuroexercise ... although resorting to the *nuclear option* ... in small doses, eg taking an aspirin, OR going full out to destroy the mind and end the pain ... is always an option. The curriculum is designed to be flexible and adaptable to the needs of individual learners, with opportunities for self-directed study, group discussion, and hands-on practice.
 
-*Changing the psychological stance towards pain is the first step in USING pain as a means to improve ... because the Reality of coming across physical, emotional, spiritual pain that won't leave us alone in our lives just ain't going away for any of us*. 
+The coursework spans from fundamental pain concepts to advanced subspecialty considerations. Modules incorporate readings, lectures, case discussions, practical exercises, and reflection on the spiritual dimensions of pain and its relief.
 
-The inescapablity of inevitable pain of one sort or another is THE DEFINING REALITY of the human condition.
+**The inescapablity of inevitable pain of one sort or another is THE DEFINING REALITY of the human condition.**
+
+## Course Objective
+
+The **OBJECTIVE** of this course of study to **develop a personalized pain mgmt training discipline** that one uses every day to implement practical cognitive strategies and implementing a neuroexercise workthough routine for pain management and learning as much as possible from pain, **rather than running from it.**
+
+Th objective IS NOT to make pain go away ... pain is a part of LIFE and a blessing in terms of the information our own lives as well as the empathy for others that the signal pain provide ... the objective is building this cognitive discipline is to reduce the noise and increase the value of the signal. **DISCIPLINE equals FREEDOM**
+
+*Changing the psychological stance towards pain is the first step in actually USING pain as a aid to improve our lives and the lives of those around us ... because the Reality of coming across physical, emotional, spiritual pain that won't leave us alone in our lives just ain't going away for any of us*.
 
 ## Introduction and Fundamentals (20 modules)
 
@@ -225,11 +234,6 @@ The inescapablity of inevitable pain of one sort or another is THE DEFINING REAL
 - Vocation of the Christian pain clinician
 - Accompanying pain sufferers as ministry
 
-This is only a SUGGESTED outline of an intensive multi-disciplinary curriculum drawing on knowledge from medicine, nursing, psychology, physical therapy, complementary medicine, theology, and other fields to provide a holistic and integrative approach to pain care. 
-
-The point is to put it INTO PRACTICE IN PAIN MGMT EXERCISE OPPORTUNITIES IN ONE'S OWN LIFE ... to **emphasize** non-pharmacological pain management strategies including meditation, prayer, and neuroexercise ... although resorting to the *nuclear option* ... in small doses, eg taking an aspirin, OR going full out to destroy the mind and end the pain ... is always an option. The curriculum is designed to be flexible and adaptable to the needs of individual learners, with opportunities for self-directed study, group discussion, and hands-on practice.
-
-The coursework spans from fundamental pain concepts to advanced subspecialty considerations. Modules incorporate readings, lectures, case discussions, practical exercises, and reflection on the spiritual dimensions of pain and its relief.
 
 ## How efficient are human brains at processing complex neuroprocessing?
 
