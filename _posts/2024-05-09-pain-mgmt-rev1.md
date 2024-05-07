@@ -1,7 +1,7 @@
 ---
 layout: post
-title:  "Pain Mgmt Cognitive Strategies: Personalized Training Discipline"
-date:   2024-05-06 4:30:00
+title:  "Rev 1 ... Pain Mgmt Cognitive Strategies: Personalized Training Discipline"
+date:   2024-05-09 4:30:00
 categories: mission
 ---
 
@@ -9,11 +9,32 @@ categories: mission
 The weekly MelonCave podcast episode is available at [Meditative Pain Mgmt and Why Human Cognitive Processing Power Per Watt Dominates](https://sites.libsyn.com/499103/site/meditative-pain-mgmt-and-why-human-cognitive-processing-power-per-watt-dominates).
 
 
+
+## NOBODY has the capacity to undestand your pain better than YOU.
+
+Sure, you can get outside help [and maybe should AFTER you can make an informed choice about who that help should be] ... but NOBODY is really going to understand your pain better than you. It's IMPOSSIBLE for anyone else to understand your pain better than you.
+
+It's not just your neurophysiology ... it's everything else about the pain and how it is driven by your food/lifestyle/exercise choices ... your injuries ... your economic worries ... your concerns about what the pain means for you to do what you need to help those you care about ... NOBODY has the capacity to undestand your pain better than YOU.
+
+It's IMPOSSIBLE.
+
+You can AVOID confronting your pain ... but that pain will not go away and the side-effects of swallowing something are GAURANTEED to make you worse off ... it does not matter if you drink alcohol, use heroin or taking prescription painkillers ... if you just SWALLOW SOMETHING, rather than managing the pain -- the side effects of repeatedly swallowing more and more something will give you more and more ALWAYS NEGATIVE side effects.
+
+So you can avoid LEANING IN on your pain ... but you will pay for your cowardice.
+
+# Autodidactic Training In Cognitive Strategy Discipline
+
+Pain management discipline is NECESSARILY autodidactic ... you really have to UNDERSTAND what autodidactic training is and embrace autodidactic training or you are just not going to be able to tailor your own programming ... you cannot afford to just blindly be the guru of some master -- you have to be in the driver seat of defining your own autodidactic training syllabi.
+
+Doing that is easier with better information technology tools ... for example, an AI Assistant like Claude can furnish you with a roadmap for your training programming of study, but that's ONLY a roadmap -- you drive to drive it yourself AND you have to pay attention to what the map is telling you and whether that map is congruent with the situation in front of you -- but an AI assistant like Claude can spit out an OUTLINE of training for you faster than you can type up a start of an outline yourself ... but even then you will need to be able to delve into terminology [using things like Wikipedia] and the latest research [using things like PubMed] to understand the map that Claude is giving you ... but terminology and the state of the research are not sufficient -- you will need to put that information into practice ... with the pain in your own life ... and, after you have elevated yourself beyond simply being a moaning blob of flesh in pain, you will probably need to consult a professional to give you different insights what you might be missing when it comes to your pain. But you HAVE TO BE INFORMED and able to understand what the professional is telling you ... you cannot afford to just be a tourist on a cruiseliner [where EVERY last thing you can think of is taken care of for you]when it comes to your own pain management.
+
+The cognitive strategies for dealing with serious pain are somewhat like those that are taught to intelligence operatives who will likely be tortured ... it's relatively simple to understand what those strategies involved ... it's pretty much ALWAYS about *leaning in* to the pain and using pain as tool to train the mind, ie it's NEVER about being magically pain-free or even more pain-tolerant or swallowing some painkiller ... the pain ain't gonna stop coming when you're being tortured ... there's NO SUBSTITUTE for using every pain that comes up as opportunity to TRAIN ... there's no substitute for doing the reps yourself ... doesn't matter if you attend some school or training bootcamp as some sort of TOURIST student... you will have to go home and do the reps yourself ... most people don't; particularly when it comes to cognitive strategies for pain mgmt ... because the topic of YOUR PAIN is kind of ordinary, tedious and never goes away, ie *it's easier to swallow something.*
+
 # Syllabus for a year-long graduate level or post-graduate level study 
 
-This is only a SUGGESTED outline of an intensive multi-disciplinary curriculum drawing on knowledge from medicine, nursing, psychology, physical therapy, complementary medicine, theology, and other fields to provide a holistic and integrative approach to pain care. 
+What follow is only a SUGGESTED outline of an intensive multi-disciplinary curriculum drawing on knowledge from medicine, nursing, psychology, physical therapy, complementary medicine, theology, and other fields to provide a holistic and integrative approach to pain care ... if you don't like this outline, and you probably should have reasons why YOUR outline could be a lot better -- you should come up with your own outline.
 
-The point is to put it INTO PRACTICE IN PAIN MGMT EXERCISE OPPORTUNITIES IN ONE'S OWN LIFE ... to **emphasize** non-pharmacological pain management strategies including meditation, prayer, and neuroexercise ... although resorting to the *nuclear option* ... in small doses, eg taking an aspirin, OR going full out to destroy the mind and end the pain ... is always an option. The curriculum is designed to be flexible and adaptable to the needs of individual learners, with opportunities for self-directed study, group discussion, and hands-on practice.
+The point this syllabus is to put it INTO PRACTICE IN PAIN MGMT EXERCISE OPPORTUNITIES IN ONE'S OWN LIFE ... to **emphasize** non-pharmacological pain management strategies including meditation, prayer, and neuroexercise ... although resorting to the *nuclear option* ... in small doses, eg taking an aspirin, OR going full out to destroy the mind and end the pain ... is always an option. The curriculum is designed to be flexible and adaptable to the needs of individual learners, with opportunities for self-directed study, group discussion, and hands-on practice.
 
 The coursework spans from fundamental pain concepts to advanced subspecialty considerations. Modules incorporate readings, lectures, case discussions, practical exercises, and reflection on the spiritual dimensions of pain and its relief.
 
@@ -33,8 +54,11 @@ Pain is a part of LIFE and a blessing in terms of the information our own lives 
 
 ## Introduction and Fundamentals (20 modules)
 
-1. The neurophysiology of pain perception 
-2. Cognitive and emotional factors influencing pain
+1. **The [neurophysiology of pain perception](https://pubmed.ncbi.nlm.nih.gov/?term=neurophysiology+of+pain+perception&filter=simsearch1.fha&filter=simsearch2.ffrft&size=200)** ... it is necessary to delve into the intricacies of [nociception](https://www.ncbi.nlm.nih.gov/books/NBK470255/#:~:text=Nociception%20refers%20to%20the%20central,the%20activation%20of%20these%20pathways) as well as [the theory of pain and pain perception](https://www.ncbi.nlm.nih.gov/books/NBK545194/). Given an [understanding of pain's comlexity](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC10672144/), we should question long-standing beliefs like the cerebral-centric view of pain, the forgotten role of the peripheral nervous system in pain chronification, misconceptions around central sensitization syndromes, the controversy about the existence of a dedicated pain neuromatrix, the consciousness of the pain experience, and the possible oversight of factors beyond the nervous system.  
+
+2. **Cognitive and emotional factors influencing pain** ... as Aristotle said, “*pain is quality of ALL senses*” ... **Comprehending pain as an experience necessitates a deep understanding of the complexities inherent in consciousness.** Recent research against this theory suggests that rather than processing pain-associated information, it processes salient sensory information significant to the organism without an evident specificity. Contemporary theories, in line with consciousness models, propose pain from a Bayesian Model that perceives pain consciousness from a probabilistic and inferential approach, influenced by both current sensory information and past experiences. In this light, we cannot detach pain experience from consciousness research. In the past decade, pain awareness has been attributed to a possible specific neuromatrix composed of various brain regions. The specificity of the [mind-body interaction in the “*pain neuromatrix*”](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2738609/) has been debated and is the subject of different attempts [using functional neuroimaging of chronic pain mechanisms to learn about "*centralized" pain](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4289059/), highlighting [the inherent complexity of pain](https://pubmed.ncbi.nlm.nih.gov/38002692/). With the advent of cognitive neuroscience, pain is often presented as a primary output derived from the brain, but this must align with [George Engel](https://en.wikipedia.org/wiki/George_L._Engel)'s generally accepted [Biopsychosocial Model](https://en.wikipedia.org/wiki/Biopsychosocial_model) which views pain as the result of complex interactions between biological, psychological, and sociological factors, which suggest that any theory which fails to include all of these three constructs of pain, fails to provide an accurate explanation for why an individual is experiencing pain, eg the individual might be under severe financial stress OR has obligations to others or difficult situation at work and is simply overwhelmed by the pain and what uncertainties and worries or fears that the pain triggers. This paradigm shift was indeed important and brings forward potential misconceptions and over-simplifications, that suggest a person **really shouldn't** *just go to the doctor to get a treatment or a prescription for some pills* to deal with pain ... *there's way more to it than just physiology.*
+
+
 3. Mindfulness and mind-body approaches to pain
 4. Meditation techniques for pain management
 5. Breath work and body scanning 
