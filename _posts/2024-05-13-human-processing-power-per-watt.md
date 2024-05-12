@@ -1,11 +1,39 @@
 ---
 layout: post
 title:  "Human Processing Power Per Watt"
-date:   2024-05-05 4:30:00
+date:   2024-05-13 4:30:00
 categories: mission
 ---
 
 The weekly MelonCave podcast episode is available at [Meditative Pain Mgmt and Why Human Cognitive Processing Power Per Watt Dominates](https://sites.libsyn.com/499103/site/meditative-pain-mgmt-and-why-human-cognitive-processing-power-per-watt-dominates).
+
+## FIRST remove the Stupid 
+
+**Ditch the cognitive strategies that have calicified into the bad [mental] habits of being yourself.** You should not expect that ANYBODY is coming to save you from yourself ... it's up to YOUR to work harder at saving yourself from your evil self. If YOU are defensive about your own bad habits or want to blame how you are undermining yourself on ANYONE else ... guess what, then YOU are the problem; the more defensive you get about your bad habits, the more you become the UGLY, TOXIC person in your life. 
+
+**You have to remove the TOXICITY of being yourself.**
+
+BEFORE we can really move on to exploiting the full potential of the human brain, we need to address the fact that most people are not even using a full percent of their brain's capacity ... and that's because most people are devoting their brain's processing power to RUNNING FROM PAIN ... or running from tedium and tried to hide from their feelings of of worthlessness ... which are fully justified by their own subconscious which is screaming at them "KNOCK OFF YOUR DAMNED WHINING!"
+
+1) *Stop* **running** *from pain by engaging victim-mode thinking, self-pity, indulgence, entitlement* ... *USE PAIN* by leaning into it ... use exercise, but ditch alcohol, stress-eating, passive consumption of any form of media, ie not just no teevee or movies, but no youtube vids or podcasts -- READ more, think through what you read and APPLY in it your exercise regimen ... you will need to work on leaning in to pain and understanding your own thought processes and addictive tendencies ... you will NEED to be more self-obsessed, self-absorbed and less concerned with appearances and what you IMAGINE others might think, ie other people don't really care.
+
+2) *AVOID those who engage in WEAK, victim-mode thinking* ... this includes with any kind conspiracy thinking bs [which is always about IMAGINING dark forces have any more impact on one's life than allowing the demons to live rent-free in one's mind by engaging in such pathetic, weak-minded thinking] ... stay away from the worriers and self-pitiers [with any kind of dwelling on how their enemies are attacking them] ... a warrior doesn't worry much about what an enemy is going to do to him -- he's pre-occupied with what he need to do to the enemy ... stay far away from those with any form of indulgence thinking that leads to alcohol consumption, bad food choices or entertainment for the sake of distracting a person from a pathetic life, ie when your life sucks, ATTACK the root cause of the problem to make it stop sucking ... stay far, FAR AWAY from any sort of entitlement thinking that justifies self-pity and indulgence or inflicting costs on others with noise, pollution, externalization of costs, etc ... you should be working every day on adding value, eg through open source projects, building up your own strength and the strength of those around you; find people who push you harder to contribute ... AVOID those who are not working on themselves and their own strength.
+
+3) *Work harder on your forgiveness skills* ... NEVER EVER HATE ... develop strategies for leveling up your forgiveness skills. Pray harder for assistance in developing your forgiveness skills than you pray for stuff people anyone [including you] thinks they need ... people NEED to stop hating themselves, hating others, hating the world and FORGIVE MORE ... let go of more shit.
+
+4) *Work harder on your gratitude skills* ... develop strategies for leveling up your gratitude skills. Develop better strategies for building your knowledge in ***gratitude engineering*** and leveling up your legit THANKFULNESS skills with daily gratitude stretching exercises and workout regimens.
+
+5) *Work harder on your empathy and compassion skills* ... AVOID checkbook charity like the plague that it is ... stop enabling any form of IDIOT compassion or any form of just enabling bad habits ... develop strategies for building your knowledge in ***compassion engineering*** and leveling up your legit empathy skills with daily empathy stretching exercises and workout regimens.
+
+6) *Work harder on your prayer life* ... don't JUST spend more time in prayer; improve the quality and punch of your prayer life ... develop strategies for leveling up your skills in prayer and meditation.
+
+7) *Work harder on building your "courage muscles"* ... this is **not** about taking stupid dares or doing idiotic things to confront people or jump out of airplanes ... this is about things like public speaking ... this is about starting businesses or venture philanthropies or any kind of public exercise that almost certainly will fail many times before it succeeds ... this about taking risks in looking like like you're flailing about as a "fish out of water" learning new things ... you are NOT going to become fearless by watching MOVIES about combat, ie moviewatching is NOTHING BUT **passively** watching movies.
+
+8) *Work harder on building your "strength muscles"* ... this is PARTLY about physical strength, but the mindset for doing that and the little motivational tricks or nudges that that one develops also carry over to one's cognitive strategies for building mental strength or accuity, emotional strength or resilience, spiritual strength.
+
+9) *Work harder on building your "wisdom muscles"* ... this is about developing strategies for leveling up your wisdom skills ... this is about developing strategies for building your knowledge in ***wisdom engineering*** and leveling up your legit wisdom skills with daily wisdom stretching exercises and workout regimens.
+
+10) *Work harder on building your capacity for LOVE and joy* ... this is about developing strategies for leveling up your joy and love skills ... this is about developing strategies for building your knowledge in ***joy engineering*** and leveling up your abilities to legit LOVE your fellow human beings ... with daily love stretching exercises and workout regimens.
 
 ## How efficient are human brains at processing complex neuroprocessing?
 

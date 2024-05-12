@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Level Up Your Prayer Life"
-date:   2024-05-13 4:30:00
+date:   2024-06-20 4:30:00
 categories: mission
 ---
 

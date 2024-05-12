@@ -1,7 +1,7 @@
 ---
 layout: post
-title:  "Rev 1 ... Pain Mgmt Cognitive Strategies: Personalized Training Discipline"
-date:   2024-05-09 4:30:00
+title:  "Rev 1: Pain Mgmt Cognitive Strategies: Personalized Training Discipline"
+date:   2024-05-21 4:30:00
 categories: mission
 ---
 
