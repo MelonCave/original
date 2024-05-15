@@ -1,11 +1,13 @@
 ---
 layout: post
 title:  "Human Processing Power Per Watt"
-date:   2024-05-13 4:30:00
+date:   2024-05-06 4:30:00
 categories: mission
 ---
 
-The weekly MelonCave podcast episode is available at [Meditative Pain Mgmt and Why Human Cognitive Processing Power Per Watt Dominates](https://sites.libsyn.com/499103/site/meditative-pain-mgmt-and-why-human-cognitive-processing-power-per-watt-dominates).
+The [MelonCave podcast](https://sites.libsyn.com/499103) is now available.
+
+It's about cognitive strategies for removing the bad habits of being yourself, ie CAVE in the MELON of the idiot ruining your life.
 
 ## FIRST remove the Stupid 
 
