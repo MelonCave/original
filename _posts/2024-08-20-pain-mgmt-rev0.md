@@ -1,13 +1,12 @@
 ---
 layout: post
-title:  "Rev 1: Pain Mgmt Cognitive Strategies: Personalized Training Discipline"
-date:   2024-05-21 4:30:00
+title:  "Rev 0: Pain Mgmt Cognitive Strategies: Personalized Training Discipline"
+date:   2024-08-20 4:30:00
 categories: mission
 ---
 
 
 The weekly MelonCave podcast episode is available at [Meditative Pain Mgmt and Why Human Cognitive Processing Power Per Watt Dominates](https://sites.libsyn.com/499103/site/meditative-pain-mgmt-and-why-human-cognitive-processing-power-per-watt-dominates).
-
 
 
 ## NOBODY has the capacity to undestand your pain better than YOU.

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Human Processing Power Per Watt"
-date:   2024-05-06 4:30:00
+date:   2024-09-06 4:30:00
 categories: mission
 ---
 
