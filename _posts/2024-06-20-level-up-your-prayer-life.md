@@ -5,7 +5,9 @@ date:   2024-06-20 4:30:00
 categories: mission
 ---
 
-Here is a DRAFT of an outline for syllabus for a 200 module (daily, year-long) graduate/postgraduate level course on improving Christian prayer life with deep dives into associated topics:
+At its core, melon cave is about compactification of knowledge into harder, denser, more solid disciplines ... we could say that neuroplasticity and subconscious realignment is perhaps the fundamental push of melon cave ... there are important exercises and practices that are part of stimulating neuroplasticity and what might be most important is how SIMPLE these exercises and practices actually are ... arguably, the single most important practice or discipline that one can build upon is to continually return to center, to be in state of continual prayer.
+
+I am working on a DRAFT of an outline for syllabus for a 200-module (daily, year-long) graduate/postgraduate level course on improving Christian prayer life with deep dives into associated topics:
 
 1. Foundations of Christian Prayer
 
