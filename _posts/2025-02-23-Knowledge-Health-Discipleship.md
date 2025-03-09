@@ -9,9 +9,15 @@ categories: Tools
 
 # So That We May BETTER Train Ourselves
 
-[Philippians 4:8-9](https://www.gotquestions.org/think-about-these-things.html) admonishes us to THINK diligently about “whatever is true, whatever is noble, whatever is right, whatever is pure, whatever is lovely, whatever is admirable, . . . excellent, or praiseworthy.” We are to CONTROL our thoughts and our thoughtlife by removing any kind of mindless, out of control, hate-filled programming and instead to focus on teaching ourselves to be more curious and engaged with others in what is good and uplifting.
+This is about ***caving in the melon*** of those demon that wants us to to quit. The solution is going to be about whatever is stopping us from taking greater responsibility for developing better open source ways *to program ourselves ... so that we may BETTER train ourselves.*
 
-Sure, trending topics have ways of injecting themselves into my life ... but I have to bring things back to my main three areas of interest. My three current curiosities about knowledge engineering and improvement in health-driven creativity are really just about one thing: so that I might be a better disciple of Christ are about me taking greater responsibility for developing  better open source ways *to program me ... so that we may BETTER train ourselves.* 
+[Philippians 4:8-9](https://www.gotquestions.org/think-about-these-things.html) admonishes us to diligently ponder *“whatever is true, whatever is noble, whatever is right, whatever is pure, whatever is lovely, whatever is admirable, . . . excellent, or praiseworthy.”* 
+
+We are NOT to let someone else, some other demon CONTROL our thoughts.
+
+Our thoughtlife can improve after we remove any kind of mindless, out of control, hate-filled programming and instead to focus on teaching ourselves to be more curious and engaged with others in what is good and uplifting.
+
+Sure, trending topics have ways of injecting themselves into our lives ... but we have to bring things back to our main, prioritized areas of interest. Your three current curiosities might be in knowledge engineering, improvement in health-driven creativity and being a better disciple of Christ. 
 
 ## 1. Regenerative AI Knowledge Systems
 
