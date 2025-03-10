@@ -9,9 +9,9 @@ categories: holyhour
 
 The antidote to easy button confusion that enables the root causes generating problems is that we have to train ourselves.
 
-We have to train ourselves how to train ourselves.
+We have to train ourselves in disciplined, intentional fashion on how to train ourselves.
 
-If we want to train ourselves, we are going to have stop worshipping the new wonder tech ... whether it's AI or pharma, shiny new wonder tech is always just like the shiny new wonder tech of yesteryear ... and that does not mean than the tech does not have some really sharp and useful aspects ... there certainly ARE some extremely sharp needles in the haystack of hype. 
+If we want to train ourselves to be more disciplined, we are going to have stop worshipping the new wonder tech ... whether it's AI or pharma, shiny new wonder tech is always just like the shiny new wonder tech of yesteryear ... and that does not mean than the tech does not have some really sharp and useful aspects ... there certainly ARE some extremely sharp needles in the haystack of hype. 
 
 It really is just like what a wise old retired friend once told me about the internet in the late 1990s ... oddly enough, he was, at that time, about the age that I am now ... "***With this MUCH horse manure, there has to be one heckuva pony in here somewhere.***" 
 
