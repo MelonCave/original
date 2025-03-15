@@ -1,15 +1,21 @@
 ---
 layout: post
 title:  "Lent Is For Caving In The Melons Of Personal Demons"
-date:   2025-03-15 4:31:00
+date:   2025-03-15 3:59:00
 categories: Recovery
 ---
 
 This post is an introduction to my Melon Cave podcast.
 
-Melon Cave is about me and my struggles to CAVE IN the MELONS of the personal demons that I am battling. The reason for this autobiographical podcast is that hopefully others, who might face the same struggles, can benefit from hearing me talk about how impossible these demons have been for me to battle.
+Melon Cave is about me and my struggles to CAVE IN the MELONS of the personal demons that I am battling.
 
-I fully believe that one of the hardest battles we can ever fight is to battle against the bad habits of being ourselves. Maybe other people don't have these struggles ... but I do ... and Melon Cave is about me CAVING IN the MELONS of my personal demons.
+Yes, OF COURSE ... it is terribly self-absorbed, terribly autobiographical ... but that's the nature of this podcast.
+
+Hopefully others, who might face similar struggles, can benefit from hearing me talk about how impossible these demons have been for me to battle ... but I really do not care if people listen or not. I just want to talk about my demons, and my spiritual battle against them ... it is absolutely a ***spiritual*** sort of battle.
+
+I fully believe that one of the hardest battles any human can ever fight is to battle against the bad habits of being ourselves ... overcoming fear or worry or doubt or laziness or some other deeply, deeply personal flaw or shortcoming ... it's about developing the *little* disciplines, in order to have the discipline muscle to be able to fight larger battles is what I am talking about.
+
+Other people will have different struggles, different obstacles that they overcame ... but they overcame their personal demons by ruthlessly caving in the melons of those demons ... and Melon Cave is not special ... it's just one guy's story about CAVING IN the MELONS of his personal demons.
 
 ----
 
