@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Lent is For Battling Demons"
+title:  "Lent Is For Caving In The Melons Of Personal Demons"
 date:   2025-03-15 4:31:00
 categories: Recovery
 ---
