@@ -5,13 +5,15 @@ date:   2025-03-15 3:59:00
 categories: Recovery
 ---
 
-This post is an introduction to my [Melon Cave podcast](https://sites.libsyn.com/499103).
+This post is an introduction to my [Melon Cave podcast](https://sites.libsyn.com/499103), which goes to the heart of why I work on something called [Transformative Discipleship Technology (TDT)](https://markbruns.github.io/objectives/2024/12/22/Z.html), which is about things like neurohacking, developing one's self-awareness and meta-cognition skills, thinking about the large-language learning models or LLM of AI *think*, using AI as a cognitive-support technology **to assist me in better programming myself to ditch the bad habits of being myself.**
 
 <iframe title="Embed Player" src="https://play.libsyn.com/embed/destination/id/4272588/height/412/theme/modern/size/large/thumbnail/yes/custom-color/520101/playlist-height/200/direction/backward/hide-subscribe/yes/hide-share/yes/font-color/ffffff" height="412" width="100%" scrolling="no" allowfullscreen="" webkitallowfullscreen="true" mozallowfullscreen="true" oallowfullscreen="true" msallowfullscreen="true" style="border: none;"></iframe>
 
-The [Melon Cave podcast](https://sites.libsyn.com/499103) is about me and my struggles to CAVE IN the MELONS of the personal demons that I am battling ... because those demons stop me from ditching the bad habits of being myself and those bad habits stop me from achieving my [Objectives](https://markbruns.github.io/Objectives)
+If you want, subscribe via the [RSS feed for MelonCave podcast](https://feeds.libsyn.com/499103/rss) into your favorite podcast app.
 
-Yes, OF COURSE ... this kind of material is terribly self-absorbed, terribly autobiographical ... but that's the nature of this [Melon Cave podcast](https://sites.libsyn.com/499103) ... and it goes to the heart of why I work on something called [Transformative Discipleship Technology (TDT)](https://markbruns.github.io/objectives/2024/12/22/Z.html), which is about things like neurohacking, developing one's self-awareness and meta-cognition skills, thinking about the large-language learning models or LLM of AI *think*, using AI as a cognitive-support technology to assist me in better programming myself to ditch the bad habits of being myself ... that's what [TDT](https://markbruns.github.io/objectives/2024/12/22/Z.html) and  this [Melon Cave podcast](https://sites.libsyn.com/499103) are about.
+The [Melon Cave podcast](https://sites.libsyn.com/499103) is about me and my struggles to CAVE IN the MELONS of the personal demons that I am battling ... because those demons stop me from ditching the bad habits of being myself ... and it is those bad personal habits stop me from achieving my most important personal [Objectives](https://markbruns.github.io/Objectives).
+
+Yes, OF COURSE ... this kind of material is terribly self-absorbed, terribly autobiographical ... too effing bad -- that's how things work ... and the personal nature of this [Melon Cave podcast](https://sites.libsyn.com/499103) ...  ... that's what  [Transformative Discipleship Technology (TDT)] (https://markbruns.github.io/objectives/2024/12/22/Z.html) this [Melon Cave podcast](https://sites.libsyn.com/499103) are about.
 
 Hopefully others, who might face similar struggles, can benefit from hearing me talk about how impossible these demons have been for me to battle ... but I really do not care if people listen or not. I just want to talk about my demons, and my spiritual battle against them ... it is absolutely a ***spiritual*** sort of battle.
 
