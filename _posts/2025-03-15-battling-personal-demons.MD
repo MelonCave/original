@@ -5,11 +5,11 @@ date:   2025-03-15 3:59:00
 categories: Recovery
 ---
 
-This post is an introduction to my Melon Cave podcast.
+This post is an introduction to my [Melon Cave podcast](https://sites.libsyn.com/499103).
 
-Melon Cave is about me and my struggles to CAVE IN the MELONS of the personal demons that I am battling.
+The [Melon Cave podcast](https://sites.libsyn.com/499103) is about me and my struggles to CAVE IN the MELONS of the personal demons that I am battling ... because those demons stop me from ditching the bad habits of being myself and those bad habits stop me from achieving my [Objectives](https://markbruns.github.io/Objectives)
 
-Yes, OF COURSE ... it is terribly self-absorbed, terribly autobiographical ... but that's the nature of this podcast.
+Yes, OF COURSE ... this kind of material is terribly self-absorbed, terribly autobiographical ... but that's the nature of this [Melon Cave podcast](https://sites.libsyn.com/499103) ... and it goes to the heart of why I work on something called [Transformative Discipleship Technology (TDT)](https://markbruns.github.io/objectives/2024/12/22/Z.html), which is about things like neurohacking, developing one's self-awareness and meta-cognition skills, thinking about the large-language learning models or LLM of AI *think*, using AI as a cognitive-support technology to assist me in better programming myself to ditch the bad habits of being myself ... that's what [TDT](https://markbruns.github.io/objectives/2024/12/22/Z.html) and  this [Melon Cave podcast](https://sites.libsyn.com/499103) are about.
 
 Hopefully others, who might face similar struggles, can benefit from hearing me talk about how impossible these demons have been for me to battle ... but I really do not care if people listen or not. I just want to talk about my demons, and my spiritual battle against them ... it is absolutely a ***spiritual*** sort of battle.
 
