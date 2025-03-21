@@ -7,6 +7,8 @@ categories: Recovery
 
 This post is an introduction to my [Melon Cave podcast](https://sites.libsyn.com/499103).
 
+<iframe title="Embed Player" src="https://play.libsyn.com/embed/destination/id/4272588/height/392/theme/modern/size/extra-large/thumbnail/yes/custom-color/520101/video-height/200/hide-playlist/yes/hide-subscribe/yes/hide-share/yes/font-color/ffffff" height="392" width="100%" scrolling="no" allowfullscreen="" webkitallowfullscreen="true" mozallowfullscreen="true" oallowfullscreen="true" msallowfullscreen="true" style="border: none;"></iframe>
+
 The [Melon Cave podcast](https://sites.libsyn.com/499103) is about me and my struggles to CAVE IN the MELONS of the personal demons that I am battling ... because those demons stop me from ditching the bad habits of being myself and those bad habits stop me from achieving my [Objectives](https://markbruns.github.io/Objectives)
 
 Yes, OF COURSE ... this kind of material is terribly self-absorbed, terribly autobiographical ... but that's the nature of this [Melon Cave podcast](https://sites.libsyn.com/499103) ... and it goes to the heart of why I work on something called [Transformative Discipleship Technology (TDT)](https://markbruns.github.io/objectives/2024/12/22/Z.html), which is about things like neurohacking, developing one's self-awareness and meta-cognition skills, thinking about the large-language learning models or LLM of AI *think*, using AI as a cognitive-support technology to assist me in better programming myself to ditch the bad habits of being myself ... that's what [TDT](https://markbruns.github.io/objectives/2024/12/22/Z.html) and  this [Melon Cave podcast](https://sites.libsyn.com/499103) are about.
