@@ -38,12 +38,14 @@ During this season of Lent AND I intend to make an annual tradition of this, I a
         * "Do you not know that in a race all the runners run, but only one receives the prize? So run that you may obtain it. Every athlete exercises self-control in all things. They do it to receive a perishable wreath, but we an imperishable." (1 Corinthians 9:24-25)
         * "Therefore, prepare your minds for action; be sober-minded; set your hope fully on the grace to be given you when Jesus Christ is revealed." (1 Peter 1:13)
 
+
 2.  **Absence of Humility:** While I intellectually understand humility, I often operate from a perspective of high self-efficacy; I try to be a high-agency person. I vehemently reject any perception of victimhood and resist assistance, asserting my self-sufficiency. This inclination, I suspect, is viewed by God as amusing, lamentable and even pathetic.
 
     * **Scripture:**
         * "But he gives more grace. Therefore it says, “God opposes the proud, but gives grace to the humble.” (James 4:6)
         * "Do nothing from selfish ambition or conceit, but in humility count others more significant than yourselves." (Philippians 2:3)
         * "Before destruction a man's heart is haughty, and before honor is humility." (Proverbs 18:12)
+
 
 3.  **Egotism:** Particularly in situations that evoke insecurity, such as professional interactions or familial scrutiny, I tend to dominate conversations. Instead of fostering dialogue by encouraging others to share, I often fill silences with my own perspectives. This tendency stems from a perceived obligation to carry the interaction.
 
@@ -52,19 +54,22 @@ During this season of Lent AND I intend to make an annual tradition of this, I a
         * "A fool takes no pleasure in understanding, but only in expressing his opinion." (Proverbs 18:2)
         * "Even a fool who keeps silent is considered wise; when he closes his lips, he is deemed intelligent." (Proverbs 17:28)
 
-4.  **Depression and Judgment:** I frequently struggle with depressive tendencies related to perceived uncontrollable circumstances. This manifests as a critical and reproachful attitude, marked by low expectations of others and an underestimation of their efforts. I am particularly prone to judging others' struggles with addictive behaviors, a reflection of my own past and potential present challenges, rooted in a lack of faith and spiritual discipline.
+
+4.  **Negativity and Judgment:** I frequently struggle with negative, rush-to-judgement tendencies related to perceived uncontrollable circumstances. This manifests as a harshly critical and reproachful attitude, marked by uncharitably low expectations of others and a tendency to aim low or underestimate of their efforts. I am particularly prone to judging others' struggles with their stupid self-defeating behaviors, a reflection of my own past and potential present challenges -- the answer is rooted in a lack of faith and spiritual discipline.
 
     * **Scripture:**
-        * "Therefore encourage one another and build one another up, just as you are doing." (1 Thessalonians 5:11)
-        * "Why do you see the speck that is in your brother's eye, but do not notice the log that is in your own eye?" (Matthew 7:3)
+        * "Therefore **encourage one another and build one another up**, just as you are doing." (1 Thessalonians 5:11)
+        * "Why do you see the speck that is in your brother's eye, but do not notice the beam that is in your own eye?" (Matthew 7:3)
         * "Cast your burden on the Lord, and he will sustain you; he will never permit the righteous to be moved." (Psalm 55:22)
 
-5.  **Inappropriate Humor:** I possess a tendency to find humor in others' struggles, particularly those related to material concerns. I often dismiss anxieties about financial comfort as trivial, believing that affluence contributes to dissatisfaction. This inclination reflects an unkindness towards those who express financial worries.
+
+5.  **Inappropriate Humor:** I have a strong tendency to find humor in others' struggles, particularly when those struggles are related to material concerns ... it's one thing to worry about how we will manage the immediate day, but worrying excessively or obsessing about material wealth, particularly when it is seen as indicator or status or value of a person actually IS INSANELY STUPID. I have learned over time that I will find a way to adapt, adjust, improvise, overcome ... and even without my own efforts ... it is CERTAINLY true that people of faith should understand why, by the grace of our Creator, we are directly admonished by Jesus Christ not to worry about such things. Since worrying about material well-being is a sign of stupidity for me, I often dismiss anxieties about financial comfort as trivially hilarious, believing that affluence contributes to dissatisfaction. Of course, this inclination reflects an unkindness towards those who express financial worries; I should not find humor in their struggles *but I do*.
 
     * **Scripture:**
         * "A joyful heart is good medicine, but a crushed spirit dries up the bones." (Proverbs 17:22) However, this does not give us permission to make fun of others struggles.
         * "Rejoice with those who rejoice, weep with those who weep." (Romans 12:15)
         * "Let no corrupting talk come out of your mouths, but only such as is good for building up, as fits the occasion, that it may give grace to those who hear." (Ephesians 4:29)
+
 
 ## Conclusion
 
