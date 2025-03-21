@@ -30,18 +30,17 @@ We could say that the self-compassion of this nature, or battling one's own demo
 And this cannot aimed at someone else ... my Melon Cave podcast is entirely about MY personal demons. I say that because I know that it's really, really, REALLY important to avoid ever judging someone else -- and of course, I subconsciously do it ... but if I ever realize that I have started thinking that I could help pick the mote out of someone else's eye, then I KNOW that it's a strong signal that I need to focus on dealing with the BEAM of ROUGH-HEWN TIMBER sticking out of my own eyesocket.
 
 During this season of Lent AND I intend to make an annual tradition of this, I am trying harder to renounce my demons ... because it's not about ***Personal Growth*** ... it's because as a Christian, I am obligated to spend this season [*counting THE COST*](https://www.gotquestions.org/count-the-cost.html) per Luke 14:28. The fact of the matter is that allow I have accepted Jesus Christ as my savior long ago there are old demons who have gotten in the way of me FULLY appreciating the cost that was paid. It's time for those demons to have their melons caved in, and those demons are:
-
 ## 1.  **Lack of Discipline:** I grapple with inconsistency, which is somewhat driven by my aptitude for easily acquiring skills. 
 
 My inconsistency is MOSTLY driven by my laziness in continously improving self-discipline in all facets of my life. Being blessed with an aptitude to pick up things is no excuse for laziness. This laziness has resulted in a deficiency in honing and mastering skillsets. Doing hard, frustrating things is necessary for sustainably improving my levels discipline for complex projects and ventures requiring more prolonged effort. My tendency towards mercurial, agile, rapidly-adaptive behavior is not exactly something I want to lose, but relying upon it hinders or sabotages my ability to maintain steadfastness.
 
 ### Scriptural Basis For The Larger Strategy of Caving In The Melon Of This Demon
 
-* "For God gave us a spirit not of fear but of power and love and self-control." (2 Timothy 1:7)
+* "For God gave us a spirit not of fear but of power and love and self-control." ([2 Timothy 1:7](https://www.bibleref.com/2-Timothy/1/2-Timothy-1-7.html))
 
-* "Do you not know that in a race all the runners run, but only one receives the prize? So run that you may obtain it. Every athlete exercises self-control in all things. They do it to receive a perishable wreath, but we an imperishable." (1 Corinthians 9:24-25)
+* "Do you not know that in a race all the runners run, but only one receives the prize? So run that you may obtain it. Every athlete exercises self-control in all things. They do it to receive a perishable wreath, but we an imperishable." ([1 Corinthians 9:24-25](https://www.bibleref.com/1-Corinthians/9/1-Corinthians-9-24.html))
 
-* "Therefore, prepare your minds for action; be sober-minded; set your hope fully on the grace to be given you when Jesus Christ is revealed." (1 Peter 1:13)
+* "Therefore, prepare your minds for action; be sober-minded; set your hope fully on the grace to be given you when Jesus Christ is revealed." ([1 Peter 1:13](https://www.bibleref.com/1-Peter/1/1-Peter-1-13.html))
 
 ## 2.  **Absence of Humility:** While I intellectually understand humility, I often operate from a perspective of high self-efficacy.
 
@@ -49,11 +48,11 @@ I exert a lot of effort to quietly be a high-agency person. I vehemently reject 
 
 ### Scriptural Basis For The Larger Strategy of Caving In The Melon Of This Demon
 
-* "But he gives more grace. Therefore it says, “God opposes the proud, but gives grace to the humble.” (James 4:6)
+* "But he gives more grace. Therefore it says, "God opposes the proud, but gives grace to the humble." ([James 4:6](https://www.bibleref.com/James/4/James-4-6.html))
 
-* "Do nothing from selfish ambition or conceit, but in humility count others more significant than yourselves." (Philippians 2:3)
+* "Do nothing from selfish ambition or conceit, but in humility count others more significant than yourselves." ([Philippians 2:3](https://www.bibleref.com/Philippians/2/Philippians-2-3.html))
 
-* "Before destruction a man's heart is haughty, and before honor is humility." (Proverbs 18:12)
+* "Before destruction a man's heart is haughty, and before honor is humility." ([Proverbs 18:12](https://www.bibleref.com/Proverbs/18/Proverbs-18-12.html))
 
 ## 3.  **Egotism:** Particularly in situations that evoke insecurity, such as professional interactions or familial scrutiny.
 
@@ -61,11 +60,11 @@ I tend to dominate conversations, especially in situations where I feel that I h
 
 ### Scriptural Basis For The Larger Strategy of Caving In The Melon Of This Demon
 
-"Let your speech always be gracious, seasoned with salt, so that you may know how you ought to answer each person." (Colossians 4:6)
+"Let your speech always be gracious, seasoned with salt, so that you may know how you ought to answer each person." ([Colossians 4:6](https://www.bibleref.com/Colossians/4/Colossians-4-6.html))
 
-"A fool takes no pleasure in understanding, but only in expressing his opinion." (Proverbs 18:2)
+"A fool takes no pleasure in understanding, but only in expressing his opinion." ([Proverbs 18:2](https://www.bibleref.com/Proverbs/18/Proverbs-18-2.html))
 
-* "Even a fool who keeps silent is considered wise; when he closes his lips, he is deemed intelligent." (Proverbs 17:28)
+* "Even a fool who keeps silent is considered wise; when he closes his lips, he is deemed intelligent." ([Proverbs 17:28](https://www.bibleref.com/Proverbs/17/Proverbs-17-28.html))
 
 ## 4.  **Negativity and Judgment:** I can be negative or rush to judgement in viewing situations that are beyond my direct responsibility. 
 
@@ -73,11 +72,11 @@ This manifests as a harshly critical and reproachful attitude, marked by unchari
 
 ### Scriptural Basis For The Larger Strategy of Caving In The Melon Of This Demon
 
-* "Therefore **encourage one another and build one another up**, just as you are doing." (1 Thessalonians 5:11)
+* "Therefore **encourage one another and build one another up**, just as you are doing." ([1 Thessalonians 5:11](https://www.bibleref.com/1-Thessalonians/5/1-Thessalonians-5-11.html))
 
-* "Why do you see the speck that is in your brother's eye, but do not notice the beam that is in your own eye?" (Matthew 7:3)
+* "Why do you see the speck that is in your brother's eye, but do not notice the beam that is in your own eye?" ([Matthew 7:3](https://www.bibleref.com/Matthew/7/Matthew-7-3.html))
 
-* "Cast your burden on the Lord, and he will sustain you; he will never permit the righteous to be moved." (Psalm 55:22)
+* "Cast your burden on the Lord, and he will sustain you; he will never permit the righteous to be moved." ([Psalm 55:22](https://www.bibleref.com/Psalm/55/Psalm-55-22.html))
 
 ## 5.  **Inappropriate Humor:** I have a strong tendency to find humor in others' struggles, particularly when those struggles are related to material concerns.
 
@@ -85,13 +84,17 @@ It's one thing to worry about how we will manage the immediate day, but worrying
 
 ### Scriptural Basis For The Larger Strategy of Caving In The Melon Of This Demon
 
-* "A joyful heart is good medicine, but a crushed spirit dries up the bones." (Proverbs 17:22) However, this does not give us permission to make fun of others struggles.
+* "A joyful heart is good medicine, but a crushed spirit dries up the bones." ([Proverbs 17:22](https://www.bibleref.com/Proverbs/17/Proverbs-17-22.html)) However, this does not give us permission to make fun of others struggles.
 
-* "Rejoice with those who rejoice, weep with those who weep." (Romans 12:15)
+* "Rejoice with those who rejoice, weep with those who weep." ([Romans 12:15](https://www.bibleref.com/Romans/12/Romans-12-15.html))
 
-* "Let no corrupting talk come out of your mouths, but only such as is good for building up, as fits the occasion, that it may give grace to those who hear." (Ephesians 4:29)
+* "Let no corrupting talk come out of your mouths, but only such as is good for building up, as fits the occasion, that it may give grace to those who hear." ([Ephesians 4:29](https://www.bibleref.com/Ephesians/4/Ephesians-4-29.html))
 
 ## Conclusion
+
+I have attempted to examines five major spiritual challenges: lack of discipline despite natural aptitude, absence of true humility while maintaining high self-efficacy, egotism in conversation particularly when insecure, negativity in judging others' struggles, and inappropriate humor toward others' material concerns. These weaknesses require **spiritual** transformation through contemplative implementation of biblical principles of self-control ([Galatians 5:23](https://www.bibleref.com/Galatians/5/Galatians-5-23.html)), humility ([James 4:10](https://www.bibleref.com/James/4/James-4-10.html)), thoughtful speech ([Proverbs 15:1](https://www.bibleref.com/Proverbs/15/Proverbs-15-1.html)), loving judgment ([John 7:24](https://www.bibleref.com/John/7/John-7-24.html)), and compassion ([Colossians 3:12](https://www.bibleref.com/Colossians/3/Colossians-3-12.html)). I framed each challenge as a "demon" to be overcome through scriptural guidance, and the choice of vivid language about "caving in the melon" is necessary [for me to think about wrestling with these demons] to overcome these spiritual obstacles. I recognize that transformation requires both divine grace ([2 Corinthians 12:9](https://www.bibleref.com/2-Corinthians/12/2-Corinthians-12-9.html)) and personal responsibility ([Philippians 2:12](https://www.bibleref.com/Philippians/2/Philippians-2-12.html)), while I am seek to develop Christ-like character ([Romans 8:29](https://www.bibleref.com/Romans/8/Romans-8-29.html)) through continual, daily renewal ([Romans 12:2](https://www.bibleref.com/Romans/12/Romans-12-2.html)) and reliance on God's strength ([Isaiah 40:31](https://www.bibleref.com/Isaiah/40/Isaiah-40-31.html)).
+
+## What's NEXT
 
 It will, of course, be a longer haul than just 40 days of Lent ... my [personal objectives](https://markbruns.github.io/Objectives) represent a continual, year-round commitment to achieving things that are personally vitally important to me ... but during Lent, I need to work a bit harder, thinking about what comforts and conveniences that I need to give up ... there are excuses and psychological comforts in these these particular faults that I need to do without.
 
