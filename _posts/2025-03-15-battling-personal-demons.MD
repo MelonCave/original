@@ -31,7 +31,9 @@ And this cannot aimed at someone else ... my Melon Cave podcast is entirely abou
 
 During this season of Lent AND I intend to make an annual tradition of this, I am trying harder to renounce my demons ... because it's not about ***Personal Growth*** ... it's because as a Christian, I am obligated to spend this season [*counting THE COST*](https://www.gotquestions.org/count-the-cost.html) per Luke 14:28. The fact of the matter is that allow I have accepted Jesus Christ as my savior long ago there are old demons who have gotten in the way of me FULLY appreciating the cost that was paid. It's time for those demons to have their melons caved in, and those demons are:
 
-1.  **Lack of Discipline:** I grapple with inconsistency, often due to an aptitude for easily acquiring skills. This has resulted in a deficiency in developing the skills in sustainably improving my levels discipline for tasks requiring prolonged effort. My tendency towards mercurial behavior hinders or sabotages my ability to maintain steadfastness.
+## 1.  **Lack of Discipline:** I grapple with inconsistency, which is somewhat driven by my aptitude for easily acquiring skills. 
+
+My inconsistency is MOSTLY driven by my laziness in continously improving self-discipline in all facets of my life. Being blessed with an aptitude to pick up things is no excuse for laziness. This laziness has resulted in a deficiency in honing and mastering skillsets. Doing hard, frustrating things is necessary for sustainably improving my levels discipline for complex projects and ventures requiring more prolonged effort. My tendency towards mercurial, agile, rapidly-adaptive behavior is not exactly something I want to lose, but relying upon it hinders or sabotages my ability to maintain steadfastness.
 
     * **Scripture:**
         * "For God gave us a spirit not of fear but of power and love and self-control." (2 Timothy 1:7)
@@ -39,7 +41,9 @@ During this season of Lent AND I intend to make an annual tradition of this, I a
         * "Therefore, prepare your minds for action; be sober-minded; set your hope fully on the grace to be given you when Jesus Christ is revealed." (1 Peter 1:13)
 
 
-2.  **Absence of Humility:** While I intellectually understand humility, I often operate from a perspective of high self-efficacy; I try to be a high-agency person. I vehemently reject any perception of victimhood and resist assistance, asserting my self-sufficiency. This inclination, I suspect, is viewed by God as amusing, lamentable and even pathetic.
+## 2.  **Absence of Humility:** While I intellectually understand humility, I often operate from a perspective of high self-efficacy.
+
+I exert a lot of effort to quietly be a high-agency person. I vehemently reject any perception of victimhood and resist assistance, asserting my self-sufficiency.  I am offended when someone tries to help me. This inclination, I suspect, is viewed by God as amusing, lamentable and probably even pathetic and WEAK.
 
     * **Scripture:**
         * "But he gives more grace. Therefore it says, “God opposes the proud, but gives grace to the humble.” (James 4:6)
@@ -47,7 +51,9 @@ During this season of Lent AND I intend to make an annual tradition of this, I a
         * "Before destruction a man's heart is haughty, and before honor is humility." (Proverbs 18:12)
 
 
-3.  **Egotism:** Particularly in situations that evoke insecurity, such as professional interactions or familial scrutiny, I tend to dominate conversations. Instead of fostering dialogue by encouraging others to share, I often fill silences with my own perspectives. This tendency stems from a perceived obligation to carry the interaction.
+## 3.  **Egotism:** Particularly in situations that evoke insecurity, such as professional interactions or familial scrutiny.
+
+I tend to dominate conversations, especially in situations where I feel that I have something to prove. Instead of fostering dialogue by doing more to encourage others to share. Pauses tend to intimidate me even when I am not conscious that I am feeling intimdated. As a result, I often fill silences with my own perspectives. Part of this tendency stems from a perceived obligation to entertain, to lead, to carry the interaction; I am under no such obligation, but when I am tired, depressed or not thinking clearly I am subject to this faulty perception.
 
     * **Scripture:**
         * "Let your speech always be gracious, seasoned with salt, so that you may know how you ought to answer each person." (Colossians 4:6)
@@ -55,7 +61,9 @@ During this season of Lent AND I intend to make an annual tradition of this, I a
         * "Even a fool who keeps silent is considered wise; when he closes his lips, he is deemed intelligent." (Proverbs 17:28)
 
 
-4.  **Negativity and Judgment:** I frequently struggle with negative, rush-to-judgement tendencies related to perceived uncontrollable circumstances. This manifests as a harshly critical and reproachful attitude, marked by uncharitably low expectations of others and a tendency to aim low or underestimate of their efforts. I am particularly prone to judging others' struggles with their stupid self-defeating behaviors, a reflection of my own past and potential present challenges -- the answer is rooted in a lack of faith and spiritual discipline.
+## 4.  **Negativity and Judgment:** I can be negative or rush to judgement in viewing situations that are beyond my direct responsibility. 
+
+This manifests as a harshly critical and reproachful attitude, marked by uncharitably low expectations of others and a tendency to aim low or underestimate of their efforts. I am particularly prone to judging others' struggles with their stupid self-defeating behaviors, a reflection of my own past and potential present challenges -- the answer is rooted in a lack of faith and spiritual discipline.
 
     * **Scripture:**
         * "Therefore **encourage one another and build one another up**, just as you are doing." (1 Thessalonians 5:11)
@@ -63,7 +71,9 @@ During this season of Lent AND I intend to make an annual tradition of this, I a
         * "Cast your burden on the Lord, and he will sustain you; he will never permit the righteous to be moved." (Psalm 55:22)
 
 
-5.  **Inappropriate Humor:** I have a strong tendency to find humor in others' struggles, particularly when those struggles are related to material concerns ... it's one thing to worry about how we will manage the immediate day, but worrying excessively or obsessing about material wealth, particularly when it is seen as indicator or status or value of a person actually IS INSANELY STUPID. I have learned over time that I will find a way to adapt, adjust, improvise, overcome ... and even without my own efforts ... it is CERTAINLY true that people of faith should understand why, by the grace of our Creator, we are directly admonished by Jesus Christ not to worry about such things. Since worrying about material well-being is a sign of stupidity for me, I often dismiss anxieties about financial comfort as trivially hilarious, believing that affluence contributes to dissatisfaction. Of course, this inclination reflects an unkindness towards those who express financial worries; I should not find humor in their struggles *but I do*.
+## 5.  **Inappropriate Humor:** I have a strong tendency to find humor in others' struggles, particularly when those struggles are related to material concerns.
+
+It's one thing to worry about how we will manage the immediate day, but worrying excessively or obsessing about material wealth, particularly when it is seen as indicator or status or value of a person actually IS INSANELY STUPID. I have learned over time that I will find a way to adapt, adjust, improvise, overcome ... and even without my own efforts ... it is CERTAINLY true that people of faith should understand why, by the grace of our Creator, we are directly admonished by Jesus Christ not to worry about such things. Since worrying about material well-being is a sign of stupidity for me, I often dismiss anxieties about financial comfort as trivially hilarious, believing that affluence contributes to dissatisfaction. Of course, this inclination reflects an unkindness towards those who express financial worries; I should not find humor in their struggles *but I do*.
 
     * **Scripture:**
         * "A joyful heart is good medicine, but a crushed spirit dries up the bones." (Proverbs 17:22) However, this does not give us permission to make fun of others struggles.
@@ -73,7 +83,9 @@ During this season of Lent AND I intend to make an annual tradition of this, I a
 
 ## Conclusion
 
-It will be a longer haul than just 40 days. By acknowledging these weaknesses and grounding my efforts in scripture, I HOPE to cultivate greater self-awareness and spiritual growth. *I would ask people to pray for me, but* I suppose I will egotistically say something like "These are my crosses to bear." I guess I would rather have them make jokes about what an idiot I can be ... but I realize that people might be intimidated by the judgemental asshole I can be.
+It will, of course, be a longer haul than just 40 days of Lent ... my [personal objectives](https://markbruns.github.io/Objectives) represent a continual, year-round commitment to achieving things that are personally vitally important to me ... but during Lent, I need to work a bit harder, thinking about what comforts and conveniences that I need to give up ... there are excuses and psychological comforts in these these particular faults that I need to do without.
+
+By acknowledging these weaknesses and grounding my efforts in scripture, I HOPE to cultivate greater self-awareness and spiritual growth. *I would ask people to pray for me, but* I suppose I will egotistically say something like "These are my crosses to bear." I guess I would rather have them make jokes about what an idiot I can be ... but I realize that people might be intimidated by the judgemental asshole I can be.
 
 In the final, most concluding of concluding remarks, these five things are what I believe:
 
