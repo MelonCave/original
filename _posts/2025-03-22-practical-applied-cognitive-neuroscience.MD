@@ -6,8 +6,18 @@ categories: Recovery
 ---
 
 
-***This is about using all the tools and methods available to program YOURSELF ... specifically, your cognitive awareness ... per YOUR direction.***
+***This post is about using all the tools and methods available to program YOURSELF ... specifically, your cognitive awareness ... per YOUR direction.***
 
+
+This post serves as background to [Melon Cave podcast](https://sites.libsyn.com/499103), which goes to the heart of why I work on something called [Transformative Discipleship Technology (TDT)](https://markbruns.github.io/objectives/2024/12/22/Z.html), which is about things like neurohacking, developing one's self-awareness and meta-cognition skills, thinking about the large-language learning models or LLM of AI *think*, using AI as a cognitive-support technology **to assist me in better programming myself to ditch the bad habits of being myself.**
+
+<iframe title="Embed Player" src="https://play.libsyn.com/embed/destination/id/4272588/height/412/theme/modern/size/large/thumbnail/yes/custom-color/520101/playlist-height/200/direction/backward/hide-subscribe/yes/hide-share/yes/font-color/ffffff" height="412" width="100%" scrolling="no" allowfullscreen="" webkitallowfullscreen="true" mozallowfullscreen="true" oallowfullscreen="true" msallowfullscreen="true" style="border: none;"></iframe>
+
+If you want to follow this, subscribe via the [RSS feed for MelonCave podcast](https://feeds.libsyn.com/499103/rss) into your favorite podcast app.
+
+The latest podcast discussion is about ONE item on this list ... **Social Isolation: Stress, Cognition, and Connection**
+
+This post actually covers other practical applied nueroscience topics that I will dive more deeply into in the future.
 
 **What IS Practical Applied Cognitive Neuroscience About? Why Should anyone care about enhancing cognitive awareness and mitigating decline as one ages?**
 
