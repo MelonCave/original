@@ -10,9 +10,10 @@ I have been SEARCHING for a clearer, better, more succinct statement of value pr
 
 # 100 Proposed Beat Meditations on The Melon Cave Value Proposition
 
-*Achievement is mostly about what obstacles we remove, removal of the self-made walls, "What stands in the way...becomes...the way! 
-*
-Caving in the melons of our personal demons is how we overcome the bad ingrained habits of being ourselves which keep up from attaining the kind of personhood we were created to exhibit. The podcasts have a strong biblical grounding and also bring various from of anti-materialistic, habit-changing wisdom from various philosophical and scientific traditions, but reflecting an integrative and loving approach ... obviously, this easier said than done but the direction of the body of work will become more evident as we work through the process of generating and reflecting upon this content.
+*Achievement is mostly about what obstacles we remove, removal of the self-made walls, "What stands in the way...becomes...the way!*
+
+
+***Caving in the melons*** of our personal demons is how we overcome the bad ingrained habits of being ourselves which keep up from attaining the kind of personhood we were created to exhibit. The podcasts have a strong biblical grounding and also bring various from of anti-materialistic, habit-changing wisdom from various philosophical and scientific traditions, but reflecting an integrative and loving approach ... obviously, this easier said than done but the direction of the body of work will become more evident as we work through the process of generating and reflecting upon this content.
 
 <iframe title="Embed Player" src="https://play.libsyn.com/embed/destination/id/4272588/height/412/theme/modern/size/large/thumbnail/yes/custom-color/520101/playlist-height/200/direction/backward/hide-subscribe/yes/hide-share/yes/font-color/ffffff" height="412" width="100%" scrolling="no" allowfullscreen="" webkitallowfullscreen="true" mozallowfullscreen="true" oallowfullscreen="true" msallowfullscreen="true" style="border: none;"></iframe>
 
