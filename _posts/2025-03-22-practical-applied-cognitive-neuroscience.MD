@@ -15,13 +15,14 @@ This post serves as background to [Melon Cave podcast](https://sites.libsyn.com/
 
 If you want to follow this, subscribe via the [RSS feed for MelonCave podcast](https://feeds.libsyn.com/499103/rss) into your favorite podcast app.
 
-The latest podcast discussion is about ONE item on this list ... **Social Isolation: Stress, Cognition, and Connection**
+The latest podcast discussion is about ONE item, the sixth, on this list below ... **[6. The Impact of Social Isolation on Stress Response and Cognitive Decline](https://docs.google.com/document/d/1PH9iB6pIiy2WV2_C-VZhQ7U5Q1OBJjlWHr3C7mbNu2U/edit?usp=sharing)**
 
-This post actually covers other practical applied nueroscience topics that I will dive more deeply into in the future.
 
 **What IS Practical Applied Cognitive Neuroscience About? Why Should anyone care about enhancing cognitive awareness and mitigating decline as one ages?**
 
-This post of material for my Melon Cave podcast is about diving into the background of knowledge necessary for *practical applied cognitive neuroscience* ... definitly not *witchcraft* some sort of spiritual *voodoo* OR *above my pay grade* kinds of stuff ...  it's just a matter of studying/applying knowledge based on your own issues, focusing on cognitive awareness and especially any foreseen declines / atrophication due to aging.
+This content here actually covers other practical applied nueroscience topics that I will dive more deeply into in the future.
+
+This material, is background research, for my Melon Cave podcasts. It's all is about diving into the background of knowledge necessary for *practical applied cognitive neuroscience* ... which is kind of just boring old science, when one gets into it ... definitly not *witchcraft* some sort of spiritual *voodoo* OR *above my pay grade* kinds of stuff ...  it's just a matter of studying/applying the acquired best knowledge based on your own issues, focusing on cognitive awareness and especially any foreseen declines / atrophication due to aging.
 
 The point is to deliberate encourage cognitive rewiring, take advantage of what it is known about neuroplasticity ... use stress response or difficulties as a way to cognitively exercise ... you do not have to do this, but since death and aging are pretty much certain your response to aging and decline beforehand will happen one way or another ... the enduring neurological impact of this discipline will help you, but it's mostly YOU helping you.
 
