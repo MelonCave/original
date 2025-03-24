@@ -23,8 +23,8 @@ Ultimately, our value will come down to our body of work and how it has helped o
 
 To understand where we're going with that work, you can look at the 100 value propositions for Melon Cave. Each statement below is paired with both biblical grounding and wisdom from various philosophical and scientific traditions, reflecting an integrative approach ... but the direction will become more evident as we work through the process of generating and reflecting upon this content.
 
-1. **Transformative Discipleship Technology: Using science-backed methods to overcome the bad habits of being yourself.**
-   * Biblical: "Do not conform to the pattern of this world, but be transformed by the renewing of your mind." ([Romans 12:2](https://www.bibleref.com/Romans/12/Romans-12-2.html))
+1. **What Stands In the Way Becomes The Way ... is about using Transformative Discipleship Technology (TDT) to overcome the bad habits of being yourself.**
+   * Biblical: "Do not conform to the pattern of this world, **but be transformed by the renewing of your mind**." ([Romans 12:2](https://www.bibleref.com/Romans/12/Romans-12-2.html)) You can't renew your mind by being a spectator, watch, wishing, desiring to be of the world. In order to become a transformative disciple of Christ, you must first transform yourself. You are the prison that is keep you from what your Creator intended you to become ... break out.
    * Quote: "The impediment to action advances action. What stands in the way becomes the way." - Marcus Aurelius
 
 2. **Harnessing neuroplasticity through disciplined practice to rewire your brain and transform your character.**
