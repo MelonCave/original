@@ -27,7 +27,7 @@ To understand where we're going with that work, you can look at the 100 value pr
    * Biblical: "Do not conform to the pattern of this world, **but be transformed by the renewing of your mind**." ([Romans 12:2](https://www.bibleref.com/Romans/12/Romans-12-2.html)) You can't renew your mind by being a spectator, watch, wishing, desiring to be of the world. In order to become a transformative disciple of Christ, you must first transform yourself. You are the prison that is keep you from what your Creator intended you to become ... break out.
    * Quote: "The impediment to action advances action. What stands in the way becomes the way." - Marcus Aurelius
 
-2. **Harnessing neuroplasticity through disciplined practice to rewire your brain and transform your character.**
+2. **The Discipline of Becoming ... is about harnessing neuroplasticity through disciplined practice to rewire our brain, transform our character.**
    * Biblical: "Put off your old self... and put on the new self, created after the likeness of God." ([Ephesians 4:22-24](https://www.bibleref.com/Ephesians/4/Ephesians-4-24.html))
    * Quote: "We are what we repeatedly do. Excellence, then, is not an act, but a habit." - Aristotle
 
