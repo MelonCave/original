@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Personal Working Hypothesis"
-date:   2029-09-09 3:59:00
+date:   2025-09-09 3:59:00
 categories: Recovery
 ---
 

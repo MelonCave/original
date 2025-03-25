@@ -4,7 +4,7 @@ title: A)
 permalink: /FOSS/A/
 ---
 
-## The importance of asking oneself *'WHAT did you get done today?'* everyday.
+## FOSS Examen: Asking oneself *'WHAT did you get done today?'* everyday.
 
 If somebody actually, really GENUINELY cares about you ... they will ask you ... *in a compassionate but firm manner, appropriate for your level of development and that expects you to be great and achieve that you find fulfilling* ... **"What did you get done today?"**  
 
