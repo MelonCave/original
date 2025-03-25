@@ -7,25 +7,26 @@ categories: Meditations
 
 <iframe title="Embed Player" src="https://play.libsyn.com/embed/destination/id/4272588/height/412/theme/modern/size/large/thumbnail/yes/custom-color/520101/playlist-height/200/direction/backward/hide-subscribe/yes/hide-share/yes/font-color/ffffff" height="412" width="100%" scrolling="no" allowfullscreen="" webkitallowfullscreen="true" mozallowfullscreen="true" oallowfullscreen="true" msallowfullscreen="true" style="border: none;"></iframe>
 
-If you want subscribe via the [RSS feed for MelonCave podcast](https://feeds.libsyn.com/499103/rss).
+If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe via the [RSS feed for MelonCave podcast](https://feeds.libsyn.com/499103/rss).
 
 
+# Melon Cave Value Proposition
 
-# 100 Proposed Beat Meditations on the Melon Cave Value Proposition
+Identifying a specific problem for a specific audience, articulating how the product/service solves the problem, and communicating the audience-specific benefits of the solution is what the [list 100 meditations below](#100-proposed-beat-meditations) is about.
 
-That's what the list below is about.
+Ultimately, **our value** comes down to our whole body of work ... what is learned from that work ... *maybe* how that work has helped others ... but, we give the glory to our Creator. Sometimes, maybe the whole point of the exercise just a matter of dealing with our issues and self-impediments ... so that we can get past the crap, *cave in the melons* of our personal demons ... and maybe be able to try to help us help others, but we keep our aspirations simple, humble. 
 
-Ultimately, our value comes down to our body of work ... what is learned from that work ... *maybe* how that work has helped others ... but, sometimes, maybe it's just a matter of dealing with our issues and self-impediments ... so that we can get past the crap, *cave in the melons* of our personal demons ... and be able to try to help us help others. 
-
-***Caving in the melons*** of our personal demons is how we overcome the bad ingrained habits of being ourselves which keep up from attaining the kind of personhood we were created to exhibit.
+***Caving in the melons*** of our **personal** demons is how we work on ourselves to overcome the bad ingrained habits of being ourselves ... it is those bad habits, driven our personal demons, which keeps us from attaining the kind of glorious personhood we were created to exhibit.
 
 **Achievement is mostly about what obstacles we remove, removal of the self-made walls, "What stands in the way...becomes...the way!**
 
-I have been SEARCHING for a clearer, better, more succinct statement of value propositions that captures the essence of this MelonCave project. It's about the intersection of Christian spirituality, applied cognitive neuroscience, and personal transformation through disciplined practice ... ***but what does that even mean?*** 
+I have been SEARCHING for a clearer, better, more succinct statement of value propositions that captures the essence of this MelonCave project. First of all, it is REALLY personal ... *that means ME* ... it's about autobiographical, self-referential study of material at intersection of Christian spirituality, applied cognitive neuroscience, and effecting personal transformation through disciplined practice ... ***but what does that even mean?*** 
 
-The Melon Cave podcast is about practical applied cognitive neuroscience ... discipline improvement with a strong biblical grounding ... also bring various from of anti-materialistic, habit-changing wisdom from various philosophical and scientific traditions, but reflecting an integrative approach ... it's important to do everything with love, out of love.
+The Melon Cave podcast is about practical applied cognitive neuroscience ... discipline improvement with a strong biblical grounding ... also bring various from of anti-materialistic, habit-changing wisdom from various philosophical and scientific traditions, but reflecting an integrative approach ... it's important to ***do everything with love, out of love***.
 
-Obviously, improving discipline is a lot easier said than done, even with divine assistance, but the direction of the body of work will become more evident as we work through the process of generating and reflecting upon this content. To understand where we're going with that work, you can look at the 100 value propositions for Melon Cave. Each statement below is paired with both biblical grounding and wisdom from various philosophical and scientific traditions, reflecting an integrative approach ... but the direction will become more evident as we work through the process of generating and reflecting upon this content.
+Obviously, improving discipline is a lot easier said than done ... even with divine assistance ... but the direction of the body of work will become more evident as we work through the process of generating and reflecting upon this content. To understand where we're going with that work, you can look at the 100 value propositions for Melon Cave. Each statement below is paired with both biblical grounding and wisdom from various philosophical and scientific traditions, reflecting an integrative approach ... but the direction will become more evident as we work through the process of generating and reflecting upon this content.
+
+## 100 Proposed Beat Meditations
 
 1. **What Stands In the Way Becomes The Way ... is about using Transformative Discipleship Technology (TDT) to overcome the bad habits of being yourself.**
    * Biblical: "Do not conform to the pattern of this world, **but be transformed by the renewing of your mind**." ([Romans 12:2](https://www.bibleref.com/Romans/12/Romans-12-2.html)) You can't renew your mind by being a spectator, watch, wishing, desiring to be of the world. In order to become a transformative disciple of Christ, you must first transform yourself. You are the prison that is keep you from what your Creator intended you to become ... break out.
@@ -35,7 +36,7 @@ Obviously, improving discipline is a lot easier said than done, even with divine
    * Biblical: "Put off your old self... and put on the new self, created after the likeness of God." ([Ephesians 4:22-24](https://www.bibleref.com/Ephesians/4/Ephesians-4-24.html))
    * Quote: "We are what we repeatedly do. Excellence, then, is not an act, but a habit." - Aristotle
 
-3. **Where Christian spirituality meets cutting-edge neuroscience to create lasting personal change.**
+3. **Glory to Glory ... is about where Christian spirituality meets cutting-edge neuroscience to drive transformative personal change.**
    * Biblical: "Be transformed into the same image from glory to glory." ([2 Corinthians 3:18](https://www.bibleref.com/2-Corinthians/3/2-Corinthians-3-18.html))
    * Quote: "The meeting of two personalities is like the contact of two chemical substances: if there is any reaction, both are transformed." - Carl Jung
 
