@@ -5,7 +5,7 @@ date:   2025-03-25 3:59:00
 categories: Recovery
 ---
 
-## Christian Contemplative Practices, Neuroplasticity, and Cognitive Neuroscience: A Review of Current Knowledge
+## Contemplative Practice, Neuroplasticity, and Cognitive Neuroscience
 
 # Table of Contents
 
