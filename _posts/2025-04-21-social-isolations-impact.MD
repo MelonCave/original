@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Social Isolation's Impact on Stress Response and Cognitive Decline"
-date:   2025-03-22 3:59:00
+date:   2025-04-21 3:59:00
 categories: Recovery
 ---
 
@@ -12,4 +12,4 @@ If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe 
 
 ***This post is about using all the tools and methods available to program YOURSELF ... specifically, your cognitive awareness ... per YOUR direction.***
 
-The latest podcast discussion is about ONE item, the sixth, on this list below ... **[6. The Impact of Social Isolation on Stress Response and Cognitive Decline](https://docs.google.com/document/d/1PH9iB6pIiy2WV2_C-VZhQ7U5Q1OBJjlWHr3C7mbNu2U/edit?usp=sharing)**
+Most of Melon Cave podcast is about little beat meditations on cognitive awareness, applied neuroscience and Christian mindfulness, but the latest **long-form discussion** episode is about **[The Impact of Social Isolation on Stress Response and Cognitive Decline](https://docs.google.com/document/d/1PH9iB6pIiy2WV2_C-VZhQ7U5Q1OBJjlWHr3C7mbNu2U/edit?usp=sharing)**
