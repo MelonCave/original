@@ -5,23 +5,27 @@ date:   2025-03-24 3:59:00
 categories: Meditations
 ---
 
-I have been SEARCHING for a clearer, better, more succinct statement of value propositions that captures the essence of this MelonCave project. It's about the intersection of Christian spirituality, applied cognitive neuroscience, and personal transformation through disciplined practice ... ***but what does that even mean?*** 
-
-
-# 100 Proposed Beat Meditations on The Melon Cave Value Proposition
-
-*Achievement is mostly about what obstacles we remove, removal of the self-made walls, "What stands in the way...becomes...the way!*
-
-
-***Caving in the melons*** of our personal demons is how we overcome the bad ingrained habits of being ourselves which keep up from attaining the kind of personhood we were created to exhibit. The podcasts have a strong biblical grounding and also bring various from of anti-materialistic, habit-changing wisdom from various philosophical and scientific traditions, but reflecting an integrative and loving approach ... obviously, this easier said than done but the direction of the body of work will become more evident as we work through the process of generating and reflecting upon this content.
-
 <iframe title="Embed Player" src="https://play.libsyn.com/embed/destination/id/4272588/height/412/theme/modern/size/large/thumbnail/yes/custom-color/520101/playlist-height/200/direction/backward/hide-subscribe/yes/hide-share/yes/font-color/ffffff" height="412" width="100%" scrolling="no" allowfullscreen="" webkitallowfullscreen="true" mozallowfullscreen="true" oallowfullscreen="true" msallowfullscreen="true" style="border: none;"></iframe>
 
-If you want to follow this, subscribe via the [RSS feed for MelonCave podcast](https://feeds.libsyn.com/499103/rss) into your favorite podcast app.
+If you want subscribe via the [RSS feed for MelonCave podcast](https://feeds.libsyn.com/499103/rss).
 
-Ultimately, our value will come down to our body of work and how it has helped others, maybe helped us help others. 
 
-To understand where we're going with that work, you can look at the 100 value propositions for Melon Cave. Each statement below is paired with both biblical grounding and wisdom from various philosophical and scientific traditions, reflecting an integrative approach ... but the direction will become more evident as we work through the process of generating and reflecting upon this content.
+
+# 100 Proposed Beat Meditations on the Melon Cave Value Proposition
+
+That's what the list below is about.
+
+Ultimately, our value comes down to our body of work ... what is learned from that work ... *maybe* how that work has helped others ... but, sometimes, maybe it's just a matter of dealing with our issues and self-impediments ... so that we can get past the crap, *cave in the melons* of our personal demons ... and be able to try to help us help others. 
+
+***Caving in the melons*** of our personal demons is how we overcome the bad ingrained habits of being ourselves which keep up from attaining the kind of personhood we were created to exhibit.
+
+**Achievement is mostly about what obstacles we remove, removal of the self-made walls, "What stands in the way...becomes...the way!**
+
+I have been SEARCHING for a clearer, better, more succinct statement of value propositions that captures the essence of this MelonCave project. It's about the intersection of Christian spirituality, applied cognitive neuroscience, and personal transformation through disciplined practice ... ***but what does that even mean?*** 
+
+The Melon Cave podcast is about practical applied cognitive neuroscience ... discipline improvement with a strong biblical grounding ... also bring various from of anti-materialistic, habit-changing wisdom from various philosophical and scientific traditions, but reflecting an integrative approach ... it's important to do everything with love, out of love.
+
+Obviously, improving discipline is a lot easier said than done, even with divine assistance, but the direction of the body of work will become more evident as we work through the process of generating and reflecting upon this content. To understand where we're going with that work, you can look at the 100 value propositions for Melon Cave. Each statement below is paired with both biblical grounding and wisdom from various philosophical and scientific traditions, reflecting an integrative approach ... but the direction will become more evident as we work through the process of generating and reflecting upon this content.
 
 1. **What Stands In the Way Becomes The Way ... is about using Transformative Discipleship Technology (TDT) to overcome the bad habits of being yourself.**
    * Biblical: "Do not conform to the pattern of this world, **but be transformed by the renewing of your mind**." ([Romans 12:2](https://www.bibleref.com/Romans/12/Romans-12-2.html)) You can't renew your mind by being a spectator, watch, wishing, desiring to be of the world. In order to become a transformative disciple of Christ, you must first transform yourself. You are the prison that is keep you from what your Creator intended you to become ... break out.
