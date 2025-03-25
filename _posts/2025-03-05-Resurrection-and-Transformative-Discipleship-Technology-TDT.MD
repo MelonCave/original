@@ -24,7 +24,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *As Christ spent 40 days in the wilderness being tempted, Lent invites us to confront our own wilderness experiences. Self-compassion during these times teaches us to extend grace to others battling their own demons.*
 
-**Scripture Foundation:** "Then Jesus was led by the Spirit into the wilderness to be tempted by the devil. After fasting forty days and forty nights, he was hungry." (Matthew 4:1-2)
+**Scripture Foundation:** "Then Jesus was led by the Spirit into the wilderness to be tempted by the devil. After fasting forty days and forty nights, he was hungry." ([Matthew 4:1](https://www.bibleref.com/Matthew/4/Matthew-4-1.html))
 
 1. How does Christ's forty days in the wilderness help you relate to your own feelings of isolation, temptation, and hunger in recovery?
 
@@ -36,7 +36,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *During Lent, we practice intentional sacrifice through fasting, revealing our deeper spiritual hungers. Learning to sit with discomfort rather than numbing it builds compassion for ourselves and others who suffer.*
 
-**Scripture Foundation:** "Man shall not live on bread alone, but on every word that comes from the mouth of God." (Matthew 4:4)
+**Scripture Foundation:** "Man shall not live on bread alone, but on every word that comes from the mouth of God." ([Matthew 4:4](https://www.bibleref.com/Matthew/4/Matthew-4-4.html))
 
 1. How has your addiction represented a "false fast"—denying yourself authentic connection with God while indulging dependencies that don't truly satisfy?
 
@@ -48,11 +48,11 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent reminds us of how Jesus faced temptation by standing firm in His identity. Self-compassion during temptation helps us remember our true identity in Christ, enabling us to help others recognize theirs.*
 
-**Scripture Foundation:** "If you are the Son of God..." (Matthew 4:3,6) — Satan's repeated attack on Jesus's identity.
+**Scripture Foundation:** "If you are the Son of God..." ([Matthew 4:3,6](https://www.bibleref.com/Matthew/4/Matthew-4-3.html)) — Satan's repeated attack on Jesus's identity.
 
-1. How have your addictions or dependencies challenged your understanding of being "fearfully and wonderfully made" (Psalm 139:14)?
+1. How have your addictions or dependencies challenged your understanding of being "fearfully and wonderfully made" ([Psalm 139:14](https://www.bibleref.com/Psalms/139/Psalm-139-14.html))?
 
-2. When temptation is strongest, how might claiming your identity as "God's handiwork, created in Christ Jesus to do good works" (Ephesians 2:10) help you resist?
+2. When temptation is strongest, how might claiming your identity as "God's handiwork, created in Christ Jesus to do good works" ([Ephesians 2:10](https://www.bibleref.com/Ephesians/2/Ephesians-2-10.html)) help you resist?
 
 3. How can recognizing your own struggles with identity and worth help you extend grace to others whose behaviors may stem from similar wounds?
 
@@ -60,7 +60,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Christ's fasting made Him physically vulnerable to temptation. Lent teaches us that acknowledging our vulnerabilities—rather than hiding them—creates space for authentic healing and compassion.*
 
-**Scripture Foundation:** "And after fasting forty days and forty nights, he was hungry. And the tempter came..." (Matthew 4:2-3)
+**Scripture Foundation:** "And after fasting forty days and forty nights, he was hungry. And the tempter came..." ([Matthew 4:2-3](https://www.bibleref.com/Matthew/4/Matthew-4-2.html))
 
 1. How has physical or emotional "hunger" made you more vulnerable to your addiction?
 
@@ -72,9 +72,9 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent's call to surrender mirrors recovery's first step of acknowledging powerlessness. Self-compassion during surrender builds capacity to walk alongside others as they learn to let go.*
 
-**Scripture Foundation:** "Not my will, but yours be done." (Luke 22:42)
+**Scripture Foundation:** "Not my will, but yours be done." ([Luke 22:42](https://www.bibleref.com/Luke/22/Luke-22-42.html))
 
-1. How do you distinguish between things you can change and things you must surrender to God, as in "Cast your burden on the LORD, and he will sustain you" (Psalm 55:22)?
+1. How do you distinguish between things you can change and things you must surrender to God, as in "Cast your burden on the LORD, and he will sustain you" ([Psalm 55:22](https://www.bibleref.com/Psalms/55/Psalm-55-22.html))?
 
 2. What areas of control are hardest for you to release to God's care, and how might practicing surrender during Lent help your recovery journey?
 
@@ -84,11 +84,11 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Christ's wilderness experience demonstrated perfect humility in the face of temptation. Lent invites us to practice humility, opening space for self-compassion where pride once demanded perfection.*
 
-**Scripture Foundation:** "Humble yourselves before the Lord, and he will lift you up." (James 4:10)
+**Scripture Foundation:** "Humble yourselves before the Lord, and he will lift you up." ([James 4:10](https://www.bibleref.com/James/4/James-4-10.html))
 
-1. How has pride manifested in your addiction and recovery, considering that "Pride goes before destruction, and a haughty spirit before a fall" (Proverbs 16:18)?
+1. How has pride manifested in your addiction and recovery, considering that "Pride goes before destruction, and a haughty spirit before a fall" ([Proverbs 16:18](https://www.bibleref.com/Proverbs/16/Proverbs-16-18.html))?
 
-2. In what ways have you resisted "humbling yourself under the mighty hand of God" (1 Peter 5:6) during your recovery journey?
+2. In what ways have you resisted "humbling yourself under the mighty hand of God" ([1 Peter 5:6](https://www.bibleref.com/1-Peter/5/1-Peter-5-6.html)) during your recovery journey?
 
 3. How might practicing humility during Lent help you extend patience and understanding to others who struggle with admitting their need for help?
 
@@ -96,9 +96,9 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent's practice of reflection and confession establishes a healing rhythm. Learning self-compassion through confession teaches us to create safe spaces for others to acknowledge their failures.*
 
-**Scripture Foundation:** "If we confess our sins, he is faithful and just and will forgive us our sins and purify us from all unrighteousness." (1 John 1:9)
+**Scripture Foundation:** "If we confess our sins, he is faithful and just and will forgive us our sins and purify us from all unrighteousness." ([1 John 1:9](https://www.bibleref.com/1-John/1/1-John-1-9.html))
 
-1. How has regular confession practice helped you embrace the principle that "whoever conceals his transgressions will not prosper, but he who confesses and forsakes them will obtain mercy" (Proverbs 28:13)?
+1. How has regular confession practice helped you embrace the principle that "whoever conceals his transgressions will not prosper, but he who confesses and forsakes them will obtain mercy" ([Proverbs 28:13](https://www.bibleref.com/Proverbs/28/Proverbs-28-13.html))?
 
 2. When has confession with self-compassion rather than self-condemnation led to deeper healing in your recovery?
 
@@ -108,9 +108,9 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Christ withdrew into solitude, but never into isolation. During Lent, we learn the difference between sacred solitude and destructive isolation, building self-compassion that recognizes our need for community.*
 
-**Scripture Foundation:** "It is not good for the man to be alone." (Genesis 2:18)
+**Scripture Foundation:** "It is not good for the man to be alone." ([Genesis 2:18](https://www.bibleref.com/Genesis/2/Genesis-2-18.html))
 
-1. How has isolation contributed to your addiction, contrary to the wisdom that "whoever isolates himself seeks his own desire; he breaks out against all sound judgment" (Proverbs 18:1)?
+1. How has isolation contributed to your addiction, contrary to the wisdom that "whoever isolates himself seeks his own desire; he breaks out against all sound judgment" ([Proverbs 18:1](https://www.bibleref.com/Proverbs/18/Proverbs-18-1.html))?
 
 2. What forms of healthy solitude might you practice during Lent to deepen recovery, while avoiding harmful isolation?
 
@@ -120,7 +120,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent calls us to simplicity and detachment from worldly comforts. Self-compassion during this process helps us understand our attachments without shame, building compassion for others' struggles to let go.*
 
-**Scripture Foundation:** "Do not store up for yourselves treasures on earth, where moths and vermin destroy..." (Matthew 6:19)
+**Scripture Foundation:** "Do not store up for yourselves treasures on earth, where moths and vermin destroy..." ([Matthew 6:19](https://www.bibleref.com/Matthew/6/Matthew-6-19.html))
 
 1. What comforts or conveniences have become unhealthy attachments in your life, functioning as "treasures on earth" that distract from spiritual growth?
 
@@ -132,9 +132,9 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent embodies holy waiting, mirroring recovery's call to patient transformation. Self-compassion during waiting seasons builds capacity to accompany others through their slow processes of change.*
 
-**Scripture Foundation:** "But they who wait for the LORD shall renew their strength; they shall mount up with wings like eagles." (Isaiah 40:31)
+**Scripture Foundation:** "But they who wait for the LORD shall renew their strength; they shall mount up with wings like eagles." ([Isaiah 40:31](https://www.bibleref.com/Isaiah/40/Isaiah-40-31.html))
 
-1. How has impatience affected your recovery, contrary to the fruit of the Spirit which includes "patience" (Galatians 5:22)?
+1. How has impatience affected your recovery, contrary to the fruit of the Spirit which includes "patience" ([Galatians 5:22](https://www.bibleref.com/Galatians/5/Galatians-5-22.html))?
 
 2. What practices might help you embrace waiting as a sacred discipline during Lent rather than rushing toward immediate relief?
 
@@ -144,11 +144,11 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Christ's wilderness temptations were real, not symbolic. Lent acknowledges the reality of our temptations, fostering self-compassion that recognizes struggle without shame, enabling us to normalize others' battles.*
 
-**Scripture Foundation:** "For we do not have a high priest who is unable to empathize with our weaknesses, but we have one who has been tempted in every way, just as we are—yet he did not sin." (Hebrews 4:15)
+**Scripture Foundation:** "For we do not have a high priest who is unable to empathize with our weaknesses, but we have one who has been tempted in every way, just as we are—yet he did not sin." ([Hebrews 4:15](https://www.bibleref.com/Hebrews/4/Hebrews-4-15.html))
 
-1. How does understanding that "no temptation has overtaken you that is not common to man" (1 Corinthians 10:13) affect your perspective on your struggles?
+1. How does understanding that "no temptation has overtaken you that is not common to man" ([1 Corinthians 10:13](https://www.bibleref.com/1-Corinthians/10/1-Corinthians-10-13.html)) affect your perspective on your struggles?
 
-2. When have you experienced the promise that God "will with the temptation also provide the way of escape" (1 Corinthians 10:13)?
+2. When have you experienced the promise that God "will with the temptation also provide the way of escape" ([1 Corinthians 10:13](https://www.bibleref.com/1-Corinthians/10/1-Corinthians-10-13.html))?
 
 3. How might your openness about temptation create safe space for others to acknowledge their struggles without shame?
 
@@ -156,7 +156,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent reminds us that spiritual testing serves divine purposes. Self-compassion during testing builds resilience that allows us to support others through their times of trial.*
 
-**Scripture Foundation:** "Consider it pure joy, my brothers and sisters, whenever you face trials of many kinds, because you know that the testing of your faith produces perseverance." (James 1:2-3)
+**Scripture Foundation:** "Consider it pure joy, my brothers and sisters, whenever you face trials of many kinds, because you know that the testing of your faith produces perseverance." ([James 1:2-3](https://www.bibleref.com/James/1/James-1-2.html))
 
 1. How have the tests and trials of recovery produced character growth that wouldn't have come through easier paths?
 
@@ -168,19 +168,19 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent acknowledges necessary losses on the path to resurrection. Self-compassion during loss helps us grieve what addiction has taken without despair, enabling us to sit with others in their losses.*
 
-**Scripture Foundation:** "Very truly I tell you, unless a kernel of wheat falls to the ground and dies, it remains only a single seed. But if it dies, it produces many seeds." (John 12:24)
+**Scripture Foundation:** "Very truly I tell you, unless a kernel of wheat falls to the ground and dies, it remains only a single seed. But if it dies, it produces many seeds." ([John 12:24](https://www.bibleref.com/John/12/John-12-24.html))
 
 1. What losses have you experienced on your recovery journey that were necessary for new life to emerge?
 
 2. How has embracing necessary losses with self-compassion rather than resentment changed your recovery journey?
 
-3. How might your experience with loss equip you to comfort others "with the comfort you yourself have received from God" (2 Corinthians 1:4)?
+3. How might your experience with loss equip you to comfort others "with the comfort you yourself have received from God" ([2 Corinthians 1:4](https://www.bibleref.com/2-Corinthians/1/2-Corinthians-1-4.html))?
 
 ### 14. The Voice of the Enemy -- March 20
 
 *During Lent, we remember how Jesus recognized and resisted the enemy's voice. Self-compassion helps us distinguish between conviction and condemnation, allowing us to guide others toward truth with gentleness.*
 
-**Scripture Foundation:** "Then Jesus said to him, 'Away with you, Satan! For it is written...'" (Matthew 4:10)
+**Scripture Foundation:** "Then Jesus said to him, 'Away with you, Satan! For it is written...'" ([Matthew 4:10](https://www.bibleref.com/Matthew/4/Matthew-4-10.html))
 
 1. How do you distinguish between God's convicting voice and Satan's condemning voice in your recovery journey?
 
@@ -192,9 +192,9 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent reveals our hunger for counterfeit nourishment. Self-compassion acknowledges these misdirected hungers without shame, building understanding for others seeking fulfillment in harmful ways.*
 
-**Scripture Foundation:** "Why spend money on what is not bread, and your labor on what does not satisfy?" (Isaiah 55:2)
+**Scripture Foundation:** "Why spend money on what is not bread, and your labor on what does not satisfy?" ([Isaiah 55:2](https://www.bibleref.com/Isaiah/55/Isaiah-55-2.html))
 
-1. How has your addiction been a counterfeit solution to Jesus's offer: "Come to me, all who labor and are heavy laden, and I will give you rest" (Matthew 11:28)?
+1. How has your addiction been a counterfeit solution to Jesus's offer: "Come to me, all who labor and are heavy laden, and I will give you rest" ([Matthew 11:28](https://www.bibleref.com/Matthew/11/Matthew-11-28.html))?
 
 2. What forms of "bread that does not satisfy" have you pursued, and how is Lent revealing healthier sources of nourishment?
 
@@ -204,7 +204,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent invites us to remember God's faithfulness in past wildernesses. Self-compassion allows us to revisit difficult memories for healing, equipping us to help others integrate their stories with grace.*
 
-**Scripture Foundation:** "Remember how the LORD your God led you all the way in the wilderness these forty years, to humble and test you in order to know what was in your heart." (Deuteronomy 8:2)
+**Scripture Foundation:** "Remember how the LORD your God led you all the way in the wilderness these forty years, to humble and test you in order to know what was in your heart." ([Deuteronomy 8:2](https://www.bibleref.com/Deuteronomy/8/Deuteronomy-8-2.html))
 
 1. How has remembering God's faithfulness in past struggles strengthened your recovery journey?
 
@@ -212,15 +212,25 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 3. How might your practice of redemptive remembering help others find meaning and hope in their own difficult histories?
 
-### 17. True and False Comfort -- March 24
 
-*Lent distinguishes between worldly comforts and divine consolation. Self-compassion acknowledges our need for comfort while directing us to lasting sources, helping us guide others to true consolation.*
 
-**Scripture Foundation:** "Blessed are those who mourn, for they will be comforted." (Matthew 5:4)
 
-1. In what ways have you sought peace from sources other than Christ, who said, "Peace I leave with you; my peace I give to you. Not as the world gives do I give to you" (John 14:27)?
 
-2. How has the comfort of the Holy Spirit, described as "the Comforter" (John 14:16 KJV), proved more lasting than the temporary relief of addiction?
+
+
+
+
+
+
+
+
+
+
+
+
+### 17. True and False Comfort -- March 24 (continued)
+
+2. How has the comfort of the Holy Spirit, described as "the Comforter" ([John 14:16 KJV](https://www.bibleref.com/John/14/John-14-16.html)), proved more lasting than the temporary relief of addiction?
 
 3. How has learning to comfort yourself appropriately equipped you to offer genuine comfort to others in pain?
 
@@ -228,7 +238,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent reveals hunger as a spiritual teacher. Self-compassion during hunger builds wisdom about our true needs, helping us guide others to distinguish between cravings and authentic desires.*
 
-**Scripture Foundation:** "Blessed are those who hunger and thirst for righteousness, for they will be filled." (Matthew 5:6)
+**Scripture Foundation:** "Blessed are those who hunger and thirst for righteousness, for they will be filled." ([Matthew 5:6](https://www.bibleref.com/Matthew/5/Matthew-5-6.html))
 
 1. What has physical hunger during fasting taught you about distinguishing between wants and needs in recovery?
 
@@ -240,7 +250,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent calls us to face what we've been avoiding. Self-compassion during this confrontation builds courage that empowers us to accompany others as they face their denied realities.*
 
-**Scripture Foundation:** "Search me, God, and know my heart; test me and know my anxious thoughts." (Psalm 139:23)
+**Scripture Foundation:** "Search me, God, and know my heart; test me and know my anxious thoughts." ([Psalm 139:23](https://www.bibleref.com/Psalms/139/Psalm-139-23.html))
 
 1. What truths about yourself or your addiction have been most difficult to face with honesty?
 
@@ -252,9 +262,9 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent exposes our illusion of self-sufficiency. Self-compassion during this realization helps us embrace healthy dependence on God and others, modeling this vulnerability for those afraid to need help.*
 
-**Scripture Foundation:** "I am the vine; you are the branches. If you remain in me and I in you, you will bear much fruit; apart from me you can do nothing." (John 15:5)
+**Scripture Foundation:** "I am the vine; you are the branches. If you remain in me and I in you, you will bear much fruit; apart from me you can do nothing." ([John 15:5](https://www.bibleref.com/John/15/John-15-5.html))
 
-1. How has addiction revealed the limitations of self-sufficiency and the necessity of acknowledging that "apart from me you can do nothing" (John 15:5)?
+1. How has addiction revealed the limitations of self-sufficiency and the necessity of acknowledging that "apart from me you can do nothing" ([John 15:5](https://www.bibleref.com/John/15/John-15-5.html))?
 
 2. When has surrendering self-sufficiency with self-compassion rather than self-criticism opened you to receiving help?
 
@@ -264,7 +274,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent follows Jesus toward death that precedes resurrection. Self-compassion during recovery's "deaths" nurtures hope for "resurrection," enabling us to assure others that new life awaits.*
 
-**Scripture Foundation:** "Very truly I tell you, unless a kernel of wheat falls to the ground and dies, it remains only a single seed. But if it dies, it produces many seeds." (John 12:24)
+**Scripture Foundation:** "Very truly I tell you, unless a kernel of wheat falls to the ground and dies, it remains only a single seed. But if it dies, it produces many seeds." ([John 12:24](https://www.bibleref.com/John/12/John-12-24.html))
 
 1. What aspects of your old life and identity have needed to "die" for recovery to take root?
 
@@ -276,11 +286,11 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent begins with ashes, symbolizing both mortality and repentance. Self-compassion amid our brokenness opens us to God's transforming work, enabling us to see beauty emerging in others' ashes.*
 
-**Scripture Foundation:** "To provide for those who grieve in Zion—to bestow on them a crown of beauty instead of ashes." (Isaiah 61:3)
+**Scripture Foundation:** "To provide for those who grieve in Zion—to bestow on them a crown of beauty instead of ashes." ([Isaiah 61:3](https://www.bibleref.com/Isaiah/61/Isaiah-61-3.html))
 
 1. How has God brought beauty from the ashes of your addiction and brokenness?
 
-2. When have you experienced God "making all things new" (Revelation 21:5) in areas that seemed beyond redemption?
+2. When have you experienced God "making all things new" ([Revelation 21:5](https://www.bibleref.com/Revelation/21/Revelation-21-5.html)) in areas that seemed beyond redemption?
 
 3. How might your story of transformation help others believe that their ashes too can become beauty?
 
@@ -288,9 +298,9 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent counts the cost of following Christ. Self-compassion during sacrifice acknowledges the real pain of letting go, helping us walk gently with others making difficult choices.*
 
-**Scripture Foundation:** "Whoever wants to be my disciple must deny themselves and take up their cross daily and follow me." (Luke 9:23)
+**Scripture Foundation:** "Whoever wants to be my disciple must deny themselves and take up their cross daily and follow me." ([Luke 9:23](https://www.bibleref.com/Luke/9/Luke-9-23.html))
 
-1. How might your addiction be an attempt to bypass Jesus's invitation to "take up your cross daily and follow me" (Luke 9:23)?
+1. How might your addiction be an attempt to bypass Jesus's invitation to "take up your cross daily and follow me" ([Luke 9:23](https://www.bibleref.com/Luke/9/Luke-9-23.html))?
 
 2. What costs of discipleship have been most challenging in your recovery journey?
 
@@ -300,7 +310,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Christ faced temptations that targeted doubt. Lent allows space for honest questions. Self-compassion during doubt creates safety for authentic faith, helping us make space for others' questions without defensiveness.*
 
-**Scripture Foundation:** "Immediately the boy's father exclaimed, 'I do believe; help me overcome my unbelief!'" (Mark 9:24)
+**Scripture Foundation:** "Immediately the boy's father exclaimed, 'I do believe; help me overcome my unbelief!'" ([Mark 9:24](https://www.bibleref.com/Mark/9/Mark-9-24.html))
 
 1. What doubts about God's goodness or power have surfaced during your recovery journey?
 
@@ -312,9 +322,9 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent's 40 days mirror Israel's 40 years of wilderness wandering. Self-compassion during extended trials builds perseverance that enables us to encourage others for the long journey.*
 
-**Scripture Foundation:** "Consider it pure joy, my brothers and sisters, whenever you face trials of many kinds, because you know that the testing of your faith produces perseverance." (James 1:2-3)
+**Scripture Foundation:** "Consider it pure joy, my brothers and sisters, whenever you face trials of many kinds, because you know that the testing of your faith produces perseverance." ([James 1:2-3](https://www.bibleref.com/James/1/James-1-2.html))
 
-1. How has experiencing setbacks in recovery helped you understand Paul's exhortation to "not grow weary of doing good, for in due season we will reap, if we do not give up" (Galatians 6:9)?
+1. How has experiencing setbacks in recovery helped you understand Paul's exhortation to "not grow weary of doing good, for in due season we will reap, if we do not give up" ([Galatians 6:9](https://www.bibleref.com/Galatians/6/Galatians-6-9.html))?
 
 2. What practices sustain your perseverance when recovery feels like 40 years in the wilderness rather than 40 days?
 
@@ -324,11 +334,11 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent reminds us we journey together as the Body of Christ. Self-compassion acknowledges our need for others, helping us create inclusive community for those who feel they don't belong.*
 
-**Scripture Foundation:** "For just as each of us has one body with many members, and these members do not all have the same function, so in Christ we, though many, form one body, and each member belongs to all the others." (Romans 12:4-5)
+**Scripture Foundation:** "For just as each of us has one body with many members, and these members do not all have the same function, so in Christ we, though many, form one body, and each member belongs to all the others." ([Romans 12:4-5](https://www.bibleref.com/Romans/12/Romans-12-4.html))
 
-1. How has recovery taught you the truth that we are "members one of another" (Romans 12:5)?
+1. How has recovery taught you the truth that we are "members one of another" ([Romans 12:5](https://www.bibleref.com/Romans/12/Romans-12-5.html))?
 
-2. When has vulnerability with others fulfilled the command to "bear one another's burdens, and so fulfill the law of Christ" (Galatians 6:2)?
+2. When has vulnerability with others fulfilled the command to "bear one another's burdens, and so fulfill the law of Christ" ([Galatians 6:2](https://www.bibleref.com/Galatians/6/Galatians-6-2.html))?
 
 3. How might your journey from isolation to community help you extend belonging to others who feel they must recover alone?
 
@@ -336,7 +346,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent involves spiritual pruning for greater fruitfulness. Self-compassion during painful cutting acknowledges genuine loss while trusting future growth, helping us reassure others during their pruning seasons.*
 
-**Scripture Foundation:** "He cuts off every branch in me that bears no fruit, while every branch that does bear fruit he prunes so that it will be even more fruitful." (John 15:2)
+**Scripture Foundation:** "He cuts off every branch in me that bears no fruit, while every branch that does bear fruit he prunes so that it will be even more fruitful." ([John 15:2](https://www.bibleref.com/John/15/John-15-2.html))
 
 1. What relationships, habits, or comforts has God needed to prune from your life to make recovery possible?
 
@@ -348,11 +358,11 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent calls for rigorous self-examination. Self-compassion during this process prevents shame from derailing necessary honesty, modeling for others how to face truth with courage.*
 
-**Scripture Foundation:** "Search me, God, and know my heart; test me and know my anxious thoughts. See if there is any offensive way in me, and lead me in the way everlasting." (Psalm 139:23-24)
+**Scripture Foundation:** "Search me, God, and know my heart; test me and know my anxious thoughts. See if there is any offensive way in me, and lead me in the way everlasting." ([Psalm 139:23-24](https://www.bibleref.com/Psalms/139/Psalm-139-23.html))
 
-1. What areas of self-deception might still exist in your recovery, knowing that "the heart is deceitful above all things" (Jeremiah 17:9)?
+1. What areas of self-deception might still exist in your recovery, knowing that "the heart is deceitful above all things" ([Jeremiah 17:9](https://www.bibleref.com/Jeremiah/17/Jeremiah-17-9.html))?
 
-2. How has practicing rigorous honesty aligned with Jesus's teaching that "the truth will set you free" (John 8:32)?
+2. How has practicing rigorous honesty aligned with Jesus's teaching that "the truth will set you free" ([John 8:32](https://www.bibleref.com/John/8/John-8-32.html))?
 
 3. How has learning to examine yourself with compassion rather than condemnation equipped you to help others face their truths without being crushed by shame?
 
@@ -360,9 +370,9 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent allows fresh starts through repentance. Self-compassion during new beginnings builds resilience after failures, helping us offer others grace to try again after relapse.*
 
-**Scripture Foundation:** "The steadfast love of the LORD never ceases; his mercies never come to an end; they are new every morning; great is your faithfulness." (Lamentations 3:22-23)
+**Scripture Foundation:** "The steadfast love of the LORD never ceases; his mercies never come to an end; they are new every morning; great is your faithfulness." ([Lamentations 3:22-23](https://www.bibleref.com/Lamentations/3/Lamentations-3-22.html))
 
-1. When has getting back up after a relapse reflected the truth that "the righteous falls seven times and rises again" (Proverbs 24:16)?
+1. When has getting back up after a relapse reflected the truth that "the righteous falls seven times and rises again" ([Proverbs 24:16](https://www.bibleref.com/Proverbs/24/Proverbs-24-16.html))?
 
 2. How has experiencing God's "mercies new every morning" changed your approach to failures in recovery?
 
@@ -372,11 +382,11 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent exposes our modern idols. Self-compassion during this revelation acknowledges our misplaced devotion without condemnation, helping us gently reveal others' idolatries.*
 
-**Scripture Foundation:** "Dear children, keep yourselves from idols." (1 John 5:21)
+**Scripture Foundation:** "Dear children, keep yourselves from idols." ([1 John 5:21](https://www.bibleref.com/1-John/5/1-John-5-21.html))
 
-1. How has your addiction functioned as an idol, something you've placed before God, contrary to the commandment: "You shall have no other gods before me" (Exodus 20:3)?
+1. How has your addiction functioned as an idol, something you've placed before God, contrary to the commandment: "You shall have no other gods before me" ([Exodus 20:3](https://www.bibleref.com/Exodus/20/Exodus-20-3.html))?
 
-2. In what ways have you "worshiped and served created things rather than the Creator" (Romans 1:25) through your addiction?
+2. In what ways have you "worshiped and served created things rather than the Creator" ([Romans 1:25](https://www.bibleref.com/Romans/1/Romans-1-25.html)) through your addiction?
 
 3. How might understanding your own idolatries with compassion help you speak truth in love to others about their misplaced worship?
 
@@ -384,11 +394,11 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent emphasizes forgiveness at the cross. Self-compassion in extending and receiving forgiveness liberates us from resentment, equipping us to guide others toward freedom from bitterness.*
 
-**Scripture Foundation:** "Bear with each other and forgive one another if any of you has a grievance against someone. Forgive as the Lord forgave you." (Colossians 3:13)
+**Scripture Foundation:** "Bear with each other and forgive one another if any of you has a grievance against someone. Forgive as the Lord forgave you." ([Colossians 3:13](https://www.bibleref.com/Colossians/3/Colossians-3-13.html))
 
-1. How have resentments fueled your addiction, contrary to the instruction to "Let all bitterness and wrath and anger and clamor and slander be put away from you, along with all malice" (Ephesians 4:31)?
+1. How have resentments fueled your addiction, contrary to the instruction to "Let all bitterness and wrath and anger and clamor and slander be put away from you, along with all malice" ([Ephesians 4:31](https://www.bibleref.com/Ephesians/4/Ephesians-4-31.html))?
 
-2. When has letting go of resentment brought you freedom, aligning with Jesus's teaching that "if you forgive others their trespasses, your heavenly Father will also forgive you" (Matthew 6:14)?
+2. When has letting go of resentment brought you freedom, aligning with Jesus's teaching that "if you forgive others their trespasses, your heavenly Father will also forgive you" ([Matthew 6:14](https://www.bibleref.com/Matthew/6/Matthew-6-14.html))?
 
 3. How has learning to forgive yourself with the compassion God extends to you equipped you to help others release grudges against themselves and others?
 
@@ -396,11 +406,11 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent teaches contentment amid perceived scarcity. Self-compassion during limitation acknowledges real hunger while discovering sufficiency in Christ, helping us show others abundance within constraints.*
 
-**Scripture Foundation:** "And my God will meet all your needs according to the riches of his glory in Christ Jesus." (Philippians 4:19)
+**Scripture Foundation:** "And my God will meet all your needs according to the riches of his glory in Christ Jesus." ([Philippians 4:19](https://www.bibleref.com/Philippians/4/Philippians-4-19.html))
 
 1. How has your addiction reflected a "scarcity mentality"—a belief that God's provision isn't enough?
 
-2. How might Lenten disciplines help you experience Paul's testimony: "I have learned the secret of being content in any and every situation" (Philippians 4:12)?
+2. How might Lenten disciplines help you experience Paul's testimony: "I have learned the secret of being content in any and every situation" ([Philippians 4:12](https://www.bibleref.com/Philippians/4/Philippians-4-12.html))?
 
 3. How can your growing contentment within limitations inspire others who believe they can never have "enough"?
 
@@ -408,7 +418,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent's rituals anchor spiritual intentions. Self-compassion while establishing new patterns acknowledges difficulty while celebrating progress, helping us encourage others building recovery rituals.*
 
-**Scripture Foundation:** "And let us consider how we may spur one another on toward love and good deeds, not giving up meeting together, as some are in the habit of doing, but encouraging one another." (Hebrews 10:24-25)
+**Scripture Foundation:** "And let us consider how we may spur one another on toward love and good deeds, not giving up meeting together, as some are in the habit of doing, but encouraging one another." ([Hebrews 10:24-25](https://www.bibleref.com/Hebrews/10/Hebrews-10-24.html))
 
 1. What recovery rituals have been most powerful in replacing addictive patterns?
 
@@ -418,11 +428,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 ### 34. The Ministry of Weakness -- April 12
 
-*Lent reveals strength through weakness. Self-compassion in vulnerability transforms limitations into ministry opportunities, helping us validate others' weaknesses as potential strengths.*
-
-**Scripture Foundation:** "But he said to me, 'My grace is sufficient for you, for my power is made perfect in weakness.' Therefore I will boast all the more gladly about my weaknesses, so that Christ's power may rest on me." (2 Corinthians 12:9)
-
-1. When you feel weak in your recovery, how can you draw strength from the truth that "My grace is sufficient for you, for my power is made perfect in weakness" (2 Corinthians 12:9)?
+1. When you feel weak in your recovery, how can you draw strength from the truth that "My grace is sufficient for you, for my power is made perfect in weakness" ([2 Corinthians 12:9](https://www.bibleref.com/2-Corinthians/12/2-Corinthians-12-9.html))?
 
 2. How has viewing your weaknesses with self-compassion rather than shame opened you to experience God's power working through them?
 
@@ -432,11 +438,11 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent moves from the shame of sin to the honor of redemption. Self-compassion during shame acknowledges pain while receiving God's honor, helping us restore dignity to others trapped in shame.*
 
-**Scripture Foundation:** "Those who look to him are radiant; their faces are never covered with shame." (Psalm 34:5)
+**Scripture Foundation:** "Those who look to him are radiant; their faces are never covered with shame." ([Psalm 34:5](https://www.bibleref.com/Psalms/34/Psalm-34-5.html))
 
 1. How has shame influenced your addiction and recovery journey?
 
-2. When have you experienced the truth that in Christ, you are moving "from glory to glory" (2 Corinthians 3:18 KJV) rather than remaining defined by shame?
+2. When have you experienced the truth that in Christ, you are moving "from glory to glory" ([2 Corinthians 3:18 KJV](https://www.bibleref.com/2-Corinthians/3/2-Corinthians-3-18.html)) rather than remaining defined by shame?
 
 3. How might your journey from shame to honor help you restore dignity to others who believe their worth has been permanently compromised?
 
@@ -444,9 +450,9 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent cultivates gratitude amid voluntary limitation. Self-compassion while practicing thankfulness acknowledges difficulty while celebrating sufficiency, helping us model contentment for others.*
 
-**Scripture Foundation:** "Give thanks in all circumstances; for this is God's will for you in Christ Jesus." (1 Thessalonians 5:18)
+**Scripture Foundation:** "Give thanks in all circumstances; for this is God's will for you in Christ Jesus." ([1 Thessalonians 5:18](https://www.bibleref.com/1-Thessalonians/5/1-Thessalonians-5-18.html))
 
-1. How has cultivating gratitude affected your recovery, in line with the instruction to "give thanks in all circumstances" (1 Thessalonians 5:18)?
+1. How has cultivating gratitude affected your recovery, in line with the instruction to "give thanks in all circumstances" ([1 Thessalonians 5:18](https://www.bibleref.com/1-Thessalonians/5/1-Thessalonians-5-18.html))?
 
 2. What practices help you maintain thankfulness even during challenging seasons of recovery?
 
@@ -456,9 +462,9 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent acknowledges brokenness while moving toward Easter wholeness. Self-compassion during incomplete healing honors progress without demanding perfection, helping us celebrate others' gradual restoration.*
 
-**Scripture Foundation:** "Being confident of this, that he who began a good work in you will carry it on to completion until the day of Christ Jesus." (Philippians 1:6)
+**Scripture Foundation:** "Being confident of this, that he who began a good work in you will carry it on to completion until the day of Christ Jesus." ([Philippians 1:6](https://www.bibleref.com/Philippians/1/Philippians-1-6.html))
 
-1. How has understanding recovery as a process rather than an event helped you experience God who "began a good work in you will bring it to completion" (Philippians 1:6)?
+1. How has understanding recovery as a process rather than an event helped you experience God who "began a good work in you will bring it to completion" ([Philippians 1:6](https://www.bibleref.com/Philippians/1/Philippians-1-6.html))?
 
 2. What areas still await complete healing, and how are you practicing self-compassion while waiting?
 
@@ -468,11 +474,11 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent transforms Christ's victimhood into victory. Self-compassion while reclaiming agency acknowledges real victimization while embracing new power, helping us empower others beyond victim identities.*
 
-**Scripture Foundation:** "No, in all these things we are more than conquerors through him who loved us." (Romans 8:37)
+**Scripture Foundation:** "No, in all these things we are more than conquerors through him who loved us." ([Romans 8:37](https://www.bibleref.com/Romans/8/Romans-8-37.html))
 
 1. In what ways has your addiction kept you in a victim mentality?
 
-2. How has embracing that you are "more than conquerors through him who loved us" (Romans 8:37) shifted your recovery journey?
+2. How has embracing that you are "more than conquerors through him who loved us" ([Romans 8:37](https://www.bibleref.com/Romans/8/Romans-8-37.html)) shifted your recovery journey?
 
 3. How might your movement from victim to victor inspire others who feel permanently defined by what has happened to them?
 
@@ -480,7 +486,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *After Christ's wilderness testing, angels ministered to Him. Lent reminds us of divine support in trials. Self-compassion acknowledges need for assistance, helping us become "angels" who minister to others in recovery.*
 
-**Scripture Foundation:** "Then the devil left him, and angels came and attended him." (Matthew 4:11)
+**Scripture Foundation:** "Then the devil left him, and angels came and attended him." ([Matthew 4:11](https://www.bibleref.com/Matthew/4/Matthew-4-11.html))
 
 1. Who has been as "ministering angels" to you during the darkest moments of your recovery journey?
 
@@ -492,9 +498,9 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 *Lent always ends in Easter. Self-compassion during suffering anchors hope in coming resurrection, enabling us to assure others that death is never the final word.*
 
-**Scripture Foundation:** "I am the resurrection and the life. The one who believes in me will live, even though they die." (John 11:25)
+**Scripture Foundation:** "I am the resurrection and the life. The one who believes in me will live, even though they die." ([John 11:25](https://www.bibleref.com/John/11/John-11-25.html))
 
-1. How has the resurrection of Jesus provided hope that even your deepest struggles can be transformed, as "death is swallowed up in victory" (1 Corinthians 15:54)?
+1. How has the resurrection of Jesus provided hope that even your deepest struggles can be transformed, as "death is swallowed up in victory" ([1 Corinthians 15:54](https://www.bibleref.com/1-Corinthians/15/1-Corinthians-15-54.html))?
 
 2. When have you glimpsed "resurrection power" in areas of your life that seemed beyond redemption?
 
