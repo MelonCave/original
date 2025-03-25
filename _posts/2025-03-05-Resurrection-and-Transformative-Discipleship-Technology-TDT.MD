@@ -6,13 +6,15 @@ categories: Recovery
 ---
 
 
-The introduces the [Melon Cave podcast](https://sites.libsyn.com/499103), which goes to the heart of why I work on something called [Transformative Discipleship Technology (TDT)](https://markbruns.github.io/objectives/2024/12/22/Z.html), which is about cognitive awareness, applied neuroscience and Christian mindfulness. TDT reaches into areas like neurohacking, pain management, time management, developing one's meta-cognition skills, become a more proficient human-in-the-loop (HITL) of H-I-T-L machine learning and AI systems, thinking about the algorithms of large-language learning models (LLM) of AI *think*, using AI as a cognitive-support technology. 
-
-[TDT](https://meloncave.github.io/FOSS/0/) is about using ALL of our blessings, that includes our neuroplastic brains, it includes HITL technologies, it includes AI. My perspective is that AI came into existence *specifically for me* in order **to ASSIST ME in better programming myself to ditch the bad habits of being myself.**  Yes, we are indeed richly blessed to be alive in these times. **God is great, ALL THE TIME!**
+This post is specifically about celebrating the [40 days of Lent](#40-days-of-lenten-reflection-for-christian-recovery) also it also introduces the [Melon Cave podcast](https://sites.libsyn.com/499103), which goes to the heart of why I work on something called [Transformative *Discipleship* Technology (TDT)](https://markbruns.github.io/objectives/2024/12/22/Z.html), which is about cognitive awareness, applied neuroscience and Christian mindfulness. 
 
 <iframe title="Embed Player" src="https://play.libsyn.com/embed/destination/id/4272588/height/412/theme/modern/size/large/thumbnail/yes/custom-color/520101/playlist-height/200/direction/backward/hide-subscribe/yes/hide-share/yes/font-color/ffffff" height="412" width="100%" scrolling="no" allowfullscreen="" webkitallowfullscreen="true" mozallowfullscreen="true" oallowfullscreen="true" msallowfullscreen="true" style="border: none;"></iframe>
 
 If you want to follow this, subscribe via the [RSS feed for MelonCave podcast](https://feeds.libsyn.com/499103/rss) into your favorite podcast app.
+
+The whole point of TDT is **improved discipleship** ... but in order to get the discipline and better habits we need to get there, TDT helps us reach into transformative areas like neurohacking, music to glorify our Creator, pain management, time management, developing one's meta-cognition skills, become a more proficient human-in-the-loop (HITL) of H-I-T-L machine learning and AI systems, thinking about the algorithms of large-language learning models (LLM) of AI *think*, using AI as a cognitive-support technology. 
+
+[TDT](https://meloncave.github.io/FOSS/0/) is about using ALL of our blessings, that includes our neuroplastic brains, it includes HITL technologies, it includes AI. My perspective is that AI came into existence *specifically for me* in order **to ASSIST ME in better programming myself to ditch the bad habits of being myself.**  Yes, we are indeed richly blessed to be alive in these times. **God is great, ALL THE TIME!**
 
 ## 40 Days of Lenten Reflection for Christian Recovery
 
