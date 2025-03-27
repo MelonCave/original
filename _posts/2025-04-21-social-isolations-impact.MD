@@ -10,6 +10,5 @@ categories: Recovery
 
 If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe via the [RSS feed for MelonCave podcast](https://feeds.libsyn.com/499103/rss).
 
-***This post is about using ALL of the tools, methods, resources and connections available to program YOURSELF ... specifically, your cognitive awareness ... per YOUR direction.***
 
 Most of Melon Cave podcast is about little beat meditations on cognitive awareness, applied neuroscience and Christian mindfulness, but the latest **long-form discussion** episode is about **[The Impact of Social Isolation on Stress Response and Cognitive Decline](https://docs.google.com/document/d/1PH9iB6pIiy2WV2_C-VZhQ7U5Q1OBJjlWHr3C7mbNu2U/edit?usp=sharing)**
