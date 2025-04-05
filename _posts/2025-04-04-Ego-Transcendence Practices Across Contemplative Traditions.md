@@ -9,9 +9,9 @@ categories: Tools
 
 If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe via the [RSS feed for MelonCave podcast](https://feeds.libsyn.com/499103/rss).
 
-# Transcending Ego
+# Why Transcending Ego Matters
 
-When ego dominates mindsets, it is the worst of all demons driving bad habits, defensiveness and inability to let go of bad habits. These practices are about transcending ego in order to regain control of one's mind.
+When ego dominates our mindset, it is the worst of the worst of all personal demons driving our bad habits, defensiveness, hate, reflexive animosity and our prideful inability to allow ourselves to let go of bad habits. Thus, the practices we employ to transcend our ego, to get over ourselves, are about regaining control of our minds and our ability to lead JOYOUS, mindful existences free of the burden of ego and idiotic pride.
 
 ### Table of Contents
 
