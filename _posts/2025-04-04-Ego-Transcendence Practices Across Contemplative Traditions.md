@@ -199,7 +199,7 @@ Implications of **the J-0-Y principle of ego transcendance.** J-O-Y, J for Jesus
    - Mindfulness-Based Stress Reduction (MBSR)
    - Mindfulness-Based Cognitive Therapy (MBCT)
    - Acceptance and Commitment Therapy (ACT)
-   - Compassion-Focused Approaches**
+   - Compassion-Focused Approaches
 
 #### [VIII. Cultural Context and Adaptation](#viii-cultural-context-and-adaptation-1)
 
