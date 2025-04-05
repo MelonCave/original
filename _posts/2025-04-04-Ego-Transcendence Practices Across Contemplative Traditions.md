@@ -13,7 +13,7 @@ If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe 
 
 When ego dominates our mindset, it is the worst of the worst of all personal demons driving our bad habits, defensiveness, hate, reflexive animosity and our prideful inability to allow ourselves to let go of bad habits. Thus, the practices we employ to transcend our ego, to get over ourselves, are about regaining control of our minds and our ability to lead JOYOUS, mindful existences free of the burden of ego and idiotic pride.
 
-**Which contemplative tradition is best?** *That's EASY!* The one that you actually DO and follow consistently, routinely so that you really use it every day, throughout the day, so that you adapt it to your life in a manner such that it ***works*** for you is the one that is *best* for you. The best tradition to **start** with is the tradition that matches your own background and traditions of your parents or those who you especially admire and respect, but there's something to be learned from all traditions.
+**Which contemplative tradition is best?** *That's EASY!* ***It's not the one that looks good when you're just shopping, it's the one you DO!*** The tradition that you actually **OWN**, and DO as if you are commited to it, continually adapt and follow consistently is best for you. You need to completely OWN it, not just something you tossing in your spiritual shopping cart, but something that you follow it routinely so that you really use it every day, throughout the day, so that you adapt it to your life in a manner such that it ***works*** for you is the one that is *best* for you. The best tradition to **start** with is the tradition that matches your own background and traditions of your parents or those who you especially admire and respect, but there's something to be learned from all traditions.
 
 ### Table of Contents
 
@@ -116,13 +116,13 @@ Implications of **the J-0-Y principle of ego transcendance.** J-O-Y, J for Jesus
    - Element meditation
    - Seasonal attunement rituals
 
-#### V. Sufi Traditions
-1. **Dhikr (Remembrance)**
+#### [V. Sufi Traditions](#v-sufi-traditions-1)
+1. [**Dhikr (Remembrance)**](#1-dhikr-remembrance)
    - Rhythmic breathing with sacred phrases
    - Silent and vocal remembrance practices
    - Group dhikr ceremonies
 
-2. **Sama (Sacred Listening)**
+2. [**Sama (Sacred Listening)**](#2-sama-sacred-listening)
    - Music and movement for transcendence
    - Whirling practices of the Mevlevi order
    - Attunement to cosmic harmonies
@@ -2580,35 +2580,6 @@ Unschuld, P. U. (2018). *Traditional Chinese medicine: Heritage and adaptation*.
 Chia, M., & Huang, T. (2005). *The Taoist soul body: Harnessing the power of kan and li*. Destiny Books.
 
 Wong, E. (2011). *Taoism: An essential guide*. Shambhala Publications.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-I'll develop Section V on Sufi Traditions:
-
-# Ego-Transcendence Practices Across Contemplative Traditions: A Comprehensive Guide
 
 ## V. Sufi Traditions
 
