@@ -320,7 +320,7 @@ It is the ATTRACTIVENESS of Christianity that is its best means of evangelizing 
 
 ### 1. Hesychasm
 
-Hesychasm ("stillness" or "silence") represents the central contemplative tradition of Eastern Orthodox Christianity, with roots dating to the Desert Fathers and Mothers of the 4th century and systematic development in the Byzantine era. This tradition offers distinctive approaches to ego-transcendence through the cultivation of interior stillness and the Jesus Prayer.
+[Hesychast prayer](https://www.newadvent.org/cathen/07301a.htm) ("stillness" or "silence") represents [quietist contemplation](https://www.newadvent.org/cathen/12608c.htm) as the central contemplative tradition of Eastern Orthodox Christianity, with roots dating to the Desert Fathers and Mothers of the 4th century and systematic development in the Byzantine era. This tradition offers distinctive approaches to ego-transcendence through the cultivation of interior stillness and the Jesus Prayer.
 
 #### Historical Context and Theory
 
