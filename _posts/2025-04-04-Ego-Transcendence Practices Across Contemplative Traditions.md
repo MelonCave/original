@@ -19,7 +19,7 @@ When ego dominates our mindset, it is the worst of the worst of all personal dem
 
 Across cultural contexts, and down through history, throughout the millennia of the most revered classical and sacred texts, the wisest of the wise in all cultures have recognized the essential need for humans to first transcend ego before being able to actually begin to attain anything, ie *before we can go anywhere, we must first get out of our own way.* Thus, we have seen a universal human search for ego transcendence that continues to this moment on the scientific perspectives on neuroplasticity and cognitive awareness of ego-dissolution states.
 
-#### [I. Mystical Christian Practices](#i-mystical-christian-practices-1)
+#### [I. Mystical Christian Practice](#i-mystical-christian-practices-1) ... **the J-0-Y principle of ego transcendance.** Jesus first - then, Others - then, You.
 
 1. [**Hesychasm**](#1-hesychasm)
    - The Jesus Prayer practice
@@ -295,6 +295,8 @@ When Christians repeat a phrase ***"Jesus is first*** or even ***God is great. A
 **Throughout its history, even though greater populations have been born into other religious traditions, Christianity has consistenly attracted more and more to its ranks, not by force or coercive violence of evangelical chauvanism, but by free choice.**
 
 It is the ATTRACTIVENESS of Christianity that is its best means of evangelizing for the practices of being a Christian, having Christina connections, enjoying a life JOY-filled Christian fellowship. The success of Christians in various pursuits in life has generally come from those who have transcended ego and found ways to be more effective because they are less hung up on ego bound notions of worries, failings or pride. The transcendance of ego has primariliy been cultivated the rich contemplative traditions , offering distinctive approaches to ego-transcendence within a theological framework centered on communion with God. Though sometimes less visible than the religion's doctrinal and institutional aspects, Christian mystical practices represent profound technologies for moving beyond ordinary self-identification toward what practitioners describe as union with divine presence.
+
+**The glory for the growth of Christianity must go entirely to God, our Creator.** Humans were not created to be pride-filled ego-driven assholes. We were created to put our Creator, the originator of all origins, FIRST, ie there's a REASON that we get to be blessed with all of the JOY of this existence. We generally have better lives when we put OTHERS on at least a high of a pedestals as ourselves. ***We generally belong either in prison or at least doomed to live in misery when we put ourselves or our way of doing things first.***
 
 ### 1. Hesychasm
 
