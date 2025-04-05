@@ -46,7 +46,7 @@ Implications of **the J-0-Y principle of ego transcendance.** J-O-Y, J for Jesus
 5. [**Trinitarian Mysticism**](#5-trinitarian-mysticism)
    - **Trinitarian contemplation** ... scriptural mediatitation, invocations, iconic contemplation of a Holy and Triune God
    - **Relational spiritual practice** ... communal prayer, eucharistic participation, bible study and/or daily devotions with others
-   - **Service and [kenosis](https://en.wikipedia.org/wiki/Kenosis)** ... emptying rather tithing or checkbook charity, **SELF**-giving and participation
+   - **Service and [kenosis](https://en.wikipedia.org/wiki/Kenosis)** ... emptying rather tithing or checkbook charity, **SELF**-giving and participation *to force out dwelling on ME or mine.*
 
 #### [II. Buddhist Traditions](#ii-buddhist-traditions-1)
 
