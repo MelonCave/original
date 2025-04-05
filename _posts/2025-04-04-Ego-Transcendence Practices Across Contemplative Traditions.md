@@ -24,24 +24,24 @@ Across cultural contexts, and down through history, throughout the millennia of 
 Implications of **the J-0-Y principle of ego transcendance.** J-O-Y, J for Jesus first - then, O for Others - then, Y for You.
 
 1. [**Hesychasm**](#1-hesychasm)
-   - The Jesus Prayer practice
-   - Breath coordination techniques
-   - Stillness cultivation
+   - ***The Jesus Prayer practice*** ... contemplation of Jesus and the Creator's will, rather than sitting on Santa's lap.
+   - ***Breath coordination techniques*** ... physically reinforcing the contemplation with breathwork metronome, rather than neediness or worry.
+   - ***Stillness cultivation*** ... prayer is primarily for listening and discernment, rather than asking or needy begging, certainly not akin to casting a magic spell or invoking powers that one does not possess
 
 2. [**Centering Prayer**](#2-centering-prayer)
-   - Sacred word techniques
-   - Consent to divine presence
-   - Letting go of thoughts and images
+   - Sacred word techniques ... repition of sacred words with breathwork, the metronome throughout the prayer, guiding one back to Center
+   - Consent to divine presence ... driving out the demons, taming the chattering monkey mind to make room for the Holy Spirit
+   - Letting go of thoughts and images ... recentering, aggressively letting go, forgiving, repenting, making room for the Holy Spirit
 
 3. [**Lectio Divina**](#3-lectio-divina)
-   - Contemplative scripture reading
-   - Progressive stages of immersion
-   - Transformative listening
+   - Contemplative scripture reading ... repition of scripture with breathwork, guiding one back to Center
+   - Progressive stages of immersion ... attempting earnestly to improve the discipline of the discipline of re-centering
+   - Transformative listening ... the aim is for SILENCE in the mind, to be available for guidance from the Holy Spirit
 
 4. [**Liturgical and Sacramental Practices**](#4-liturgical-and-sacramental-practices)
-   - Eucharistic communion
-   - Chanting and sacred music
-   - Sacred architecture and iconic presence
+   - Eucharistic communion ... communal order of Mass, repition of scripture with breathwork, guiding one back to Center
+   - Repetition of phrase during responsive reading with sacred music ... communally practicing the discipline of re-centering
+   - Sacred architecture and iconic presence ... the aim is SILENCE in the mind, to be available for the sacred Holy Spirit
 
 #### [II. Buddhist Traditions](#ii-buddhist-traditions-1)
 
