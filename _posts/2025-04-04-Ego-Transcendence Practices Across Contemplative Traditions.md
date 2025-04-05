@@ -19,6 +19,8 @@ When ego dominates our mindset, it is the worst of the worst of all personal dem
 
 #### [Introduction](#introduction-1)
 
+**WARNING:  This top is far, far, far more complex than can be conveyed in a simple document -- this article has NO AMBITION of being remotely close to being comprehensive or thorough enough. This document, as lengthy as it is, is only the briefest of a brief overview ... the purpose of this article is ONLY to give a comparative survive of these topics; the references are included for the reader to BEGIN to become familiar with this material.**
+
 Across cultural contexts, and down through history, throughout the millennia of the most revered classical and sacred texts, the wisest of the wise in all cultures have recognized the essential need for humans to first transcend ego before being able to actually begin to attain anything, ie *before we can go anywhere, we must first get out of our own way.* Thus, we have seen a universal human search for ego transcendence that continues to this moment on the scientific perspectives on neuroplasticity and cognitive awareness of ego-dissolution states.
 
 #### [I. Mystical Christian Practice](#i-mystical-christian-practices-1)
