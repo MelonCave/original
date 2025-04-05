@@ -13,6 +13,8 @@ If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe 
 
 When ego dominates our mindset, it is the worst of the worst of all personal demons driving our bad habits, defensiveness, hate, reflexive animosity and our prideful inability to allow ourselves to let go of bad habits. Thus, the practices we employ to transcend our ego, to get over ourselves, are about regaining control of our minds and our ability to lead JOYOUS, mindful existences free of the burden of ego and idiotic pride.
 
+**Which contemplative tradition is best?** *That's EASY!* The one that you actually DO and follow consistently, routinely so that you really use it every day, throughout the day, so that you adapt it to your life in a manner such that it ***works*** for you is the one that is *best* for you. The best tradition to **start** with is the tradition that matches your own background and traditions of your parents or those who you especially admire and respect, but there's something to be learned from all traditions.
+
 ### Table of Contents
 
 #### [Introduction](#introduction-1)
@@ -98,17 +100,18 @@ Implications of **the J-0-Y principle of ego transcendance.** J-O-Y, J for Jesus
    - Integration with daily life; observing the sacred in ordinary activities
 
 #### [IV. Taoist Practices](#iv-taoist-practices-1)
-1. **Tai Chi and Qigong**
+
+1. [**Tai Chi and Qigong**](#1-tai-chi-and-qigong)
    - Movement meditation principles
    - Energetic circulation practices
    - Non-doing (wu wei) cultivation
 
-2. **Internal Alchemy (Neidan)**
+2. [**Internal Alchemy (Neidan)**](#2-internal-alchemy-neidan)
    - Microcosmic orbit meditation
    - Visualization of interior landscapes
    - Dissolution of conceptual boundaries
 
-3. **Nature Immersion Practices**
+3. [**Nature Immersion Practices**](#3-nature-immersion-practices)
    - Wilderness solitude practices
    - Element meditation
    - Seasonal attunement rituals
