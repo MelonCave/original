@@ -5,7 +5,7 @@ date:   2025-04-04 00:00:01
 categories: Tools
 ---
 
-<iframe title="Embed Player" src="https://play.libsyn.com/embed/destination/id/4272588/height/412/theme/modern/size/large/thumbnail/yes/custom-color/520101/playlist-height/200/direction/backward/hide-subscribe/yes/hide-share/yes/font-color/ffffff" height="412" width="100%" scrolling="no" allowfullscreen="" webkitallowfullscreen="true" mozallowfullscreen="true" oallowfullscreen="true" msallowfullscreen="true" style="border: none;"></iframe>
+<iframe title="Embed Player" src="https://play.libsyn.com/embed/destination/id/4272588/height/340/theme/modern/size/large/thumbnail/no/custom-color/040832/playlist-height/128/direction/backward/download/yes/font-color/ffffff" height="340" width="100%" scrolling="yes" allowfullscreen="" webkitallowfullscreen="true" mozallowfullscreen="true" oallowfullscreen="true" msallowfullscreen="true" style="border: none;"></iframe>
 
 If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe via the [RSS feed for MelonCave podcast](https://feeds.libsyn.com/499103/rss).
 
@@ -284,7 +284,9 @@ Winkelman, M. (2010). *Shamanism: A biopsychosocial paradigm of consciousness an
 
 ## I. Mystical Christian Practices
 
-Christianity has cultivated rich contemplative traditions throughout its history, offering distinctive approaches to ego-transcendence within a theological framework centered on communion with God. Though sometimes less visible than the religion's doctrinal and institutional aspects, Christian mystical practices represent profound technologies for moving beyond ordinary self-identification toward what practitioners describe as union with divine presence.
+**The J-0-Y Principle of ego transcendance.** When Christians repeat a phrase ***"Jesus is first*** or even ***God is great. ALL the time***, they are reminding themselves and anyone who might be listening to them, that the ego and pride in one's accomplishments or professionalism or reputation, must come AFTER concern for others, for other principles, for other things like dedication to science or any oath to support and defend the Constitution -- and ***others must come after Jesus*** ... Christians are commanded to love God above all else. This ego-transcendance principle is the J-O-Y principle, ***J for Jesus, then O for Others, then Y for you,*** that Christian children are typically taught in different forms in some of the earliest lessons in Sunday School, as soon as they are beginning to understand letters, words and the notions of self. 
+
+Throughout its history, even though greater populations have been born into other religious traditions, Christianity has consistenly attracted more and more to its ranks, not by force or evangelical chauvanism, but by free choice. The success of Christians in various pursuits in life has generally come from those who have transcended ego and found ways to be more effective because they are less hung up on ego bound notions of worries, failings or pride. The transcendance of ego has primariliy been cultivated the rich contemplative traditions , offering distinctive approaches to ego-transcendence within a theological framework centered on communion with God. Though sometimes less visible than the religion's doctrinal and institutional aspects, Christian mystical practices represent profound technologies for moving beyond ordinary self-identification toward what practitioners describe as union with divine presence.
 
 ### 1. Hesychasm
 
