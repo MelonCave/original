@@ -29,19 +29,24 @@ Implications of **the J-0-Y principle of ego transcendance.** J-O-Y, J for Jesus
    - ***Stillness cultivation*** ... prayer is primarily for listening and discernment, rather than asking or needy begging, certainly not akin to casting a magic spell or invoking powers that one does not possess
 
 2. [**Centering Prayer**](#2-centering-prayer)
-   - Sacred word techniques ... repition of sacred words with breathwork, the metronome throughout the prayer, guiding one back to Center
-   - Consent to divine presence ... driving out the demons, taming the chattering monkey mind to make room for the Holy Spirit
-   - Letting go of thoughts and images ... recentering, aggressively letting go, forgiving, repenting, making room for the Holy Spirit
+   - **Sacred word techniques** ... repition of sacred words with breathwork, the metronome throughout the prayer, guiding one back to Center
+   - **Making room for divine presence** ... driving out the demons, taming the chattering monkey mind to make room for the Holy Spirit
+   - **Letting go of attachments, thoughts** ... recentering, aggressively letting go, forgiving, repenting, making room for the Holy Spirit
 
 3. [**Lectio Divina**](#3-lectio-divina)
-   - Contemplative scripture reading ... repition of scripture with breathwork, guiding one back to Center
-   - Progressive stages of immersion ... attempting earnestly to improve the discipline of the discipline of re-centering
-   - Transformative listening ... the aim is for SILENCE in the mind, to be available for guidance from the Holy Spirit
+   - **Contemplative scripture reading** ... repetition of key scriptural passage with breathwork, guiding one back to Center
+   - **Progressive immersive staging** ... polishing, earnestly improving the discipline of the discipline of re-centering
+   - **Transformative listening** ... driving out noise, to SILENCE the mind, to be available for guidance from the Holy Spirit
 
 4. [**Liturgical and Sacramental Practices**](#4-liturgical-and-sacramental-practices)
-   - Eucharistic communion ... communal order of Mass, repition of scripture with breathwork, guiding one back to Center
-   - Repetition of phrase during responsive reading with sacred music ... communally practicing the discipline of re-centering
-   - Sacred architecture and iconic presence ... the aim is SILENCE in the mind, to be available for the sacred Holy Spirit
+   - **Eucharistic communion** ... communal order of Mass, repition of scripture with breathwork, guiding one back to Center
+   - **Repetition or responsive reading with sacred rhythmic music** ... communally practicing the discipline of re-centering
+   - **Sacred architecture and iconic presence** ... the aim is SILENCE in the mind, to be available for the sacred Holy Spirit
+
+5. [**Trinitarian Mysticism**](#5-trinitarian-mysticism)
+   - **Trinitarian contemplation** ... scriptural mediatitation, invocations, iconic contemplation of a Holy and Triune God
+   - **Relational spiritual practice** ... communal prayer, eucharistic participation, bible study and/or daily devotions with others
+   - **Service and [kenosis](https://en.wikipedia.org/wiki/Kenosis)** ... emptying rather tithing or checkbook charity, **SELF**-giving and participation
 
 #### [II. Buddhist Traditions](#ii-buddhist-traditions-1)
 
