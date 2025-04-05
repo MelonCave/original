@@ -19,7 +19,9 @@ When ego dominates our mindset, it is the worst of the worst of all personal dem
 
 Across cultural contexts, and down through history, throughout the millennia of the most revered classical and sacred texts, the wisest of the wise in all cultures have recognized the essential need for humans to first transcend ego before being able to actually begin to attain anything, ie *before we can go anywhere, we must first get out of our own way.* Thus, we have seen a universal human search for ego transcendence that continues to this moment on the scientific perspectives on neuroplasticity and cognitive awareness of ego-dissolution states.
 
-#### [I. Mystical Christian Practice](#i-mystical-christian-practices-1) ... **the J-0-Y principle of ego transcendance.** Jesus first - then, Others - then, You.
+#### [I. Mystical Christian Practice](#i-mystical-christian-practices-1)
+
+Implications of **the J-0-Y principle of ego transcendance.** J-O-Y, J for Jesus first - then, O for Others - then, Y for You.
 
 1. [**Hesychasm**](#1-hesychasm)
    - The Jesus Prayer practice
