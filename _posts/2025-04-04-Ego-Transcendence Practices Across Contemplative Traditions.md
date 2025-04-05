@@ -9,39 +9,39 @@ categories: Tools
 
 If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe via the [RSS feed for MelonCave podcast](https://feeds.libsyn.com/499103/rss).
 
-# Ego-Transcendence Practices Across Contemplative Traditions
+# Transcending Ego
 
-## Table of Contents
+When ego dominates mindsets, it is the worst of all demons driving bad habits, defensiveness and inability to let go of bad habits. These practices are about transcending ego in order to regain control of one's mind.
 
-### [Introduction](#introduction-1)
+### Table of Contents
 
-- Defining ego-transcendence across cultural contexts
-- The universal human search for transcendence
-- Scientific perspectives on ego-dissolution states
+#### [Introduction](#introduction-1)
 
-### [I. Mystical Christian Practices](#i-mystical-christian-practices-1)
+Across cultural contexts, and down through history, throughout the millennia of the most revered classical and sacred texts, the wisest of the wise in all cultures have recognized the essential need for humans to first transcend ego before being able to actually begin to attain anything, ie *before we can go anywhere, we must first get out of our own way.* Thus, we have seen a universal human search for ego transcendence that continues to this moment on the scientific perspectives on neuroplasticity and cognitive awareness of ego-dissolution states.
+
+#### [I. Mystical Christian Practices](#i-mystical-christian-practices-1)
 
 1. [**Hesychasm**](#1-hesychasm)
    - The Jesus Prayer practice
    - Breath coordination techniques
    - Stillness cultivation
 
-2. **Centering Prayer**
+2. [**Centering Prayer**](#2-centering-prayer)
    - Sacred word techniques
    - Consent to divine presence
    - Letting go of thoughts and images
 
-3. **Lectio Divina**
+3. [**Lectio Divina**](#3-lectio-divina)
    - Contemplative scripture reading
    - Progressive stages of immersion
    - Transformative listening
 
-4. **Liturgical and Sacramental Practices**
+4. [**Liturgical and Sacramental Practices**](#4-liturgical-and-sacramental-practices)
    - Eucharistic communion
    - Chanting and sacred music
    - Sacred architecture and iconic presence
 
-### [II. Buddhist Traditions](#ii-buddhist-traditions-1)
+#### [II. Buddhist Traditions](#ii-buddhist-traditions-1)
 
 1. [**Vipassana Meditation**](#1-vipassana-meditation)
    - Observing sensations without identification
@@ -63,7 +63,7 @@ If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe 
    - Chöd practice (offering of the body)
    - Phowa (consciousness transference)
 
-### [III. Hindu Yogic Traditions](#iii-hindu-yogic-traditions-1)
+#### [III. Hindu Yogic Traditions](#iii-hindu-yogic-traditions-1)
 
 1. [**Bhakti Yoga**](#1-bhakti-yoga-the-path-of-devotion)
    - Devotional singing (kirtan)
@@ -90,7 +90,7 @@ If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe 
    - Addresses subtle energy rather than primarily working with mind or emotion
    - Integration with daily life; observing the sacred in ordinary activities
 
-### IV. Taoist Practices
+#### IV. Taoist Practices
 1. **Tai Chi and Qigong**
    - Movement meditation principles
    - Energetic circulation practices
@@ -106,7 +106,7 @@ If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe 
    - Element meditation
    - Seasonal attunement rituals
 
-### V. Sufi Traditions
+#### V. Sufi Traditions
 1. **Dhikr (Remembrance)**
    - Rhythmic breathing with sacred phrases
    - Silent and vocal remembrance practices
@@ -127,7 +127,7 @@ If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe 
    - Master-disciple transmission
    - Poetry as transcendent technology
 
-### VII. Indigenous and Shamanic Traditions
+#### VII. Indigenous and Shamanic Traditions
 1. **Vision Quest Practices**
    - Solitude in nature protocols
    - Fasting and purification elements
@@ -148,7 +148,7 @@ If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe 
    - Drumming circles
    - Sustained movement practices
 
-### VIII. Contemporary Secular Approaches
+#### VIII. Contemporary Secular Approaches
 1. **Flow State Cultivation**
    - Structured challenge-skill balancing
    - Attention training practices
@@ -169,7 +169,7 @@ If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe 
    - Wilderness solitude protocols
    - Sensory awareness exercises
 
-### IX. Cultural Context and Adaptation
+#### IX. Cultural Context and Adaptation
 1. **Ethics and Preparation**
    - Traditional prerequisites for practice
    - Safety considerations
@@ -180,7 +180,7 @@ If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe 
    - Supportive community structures
    - Integration in daily life
 
-### X. Integration and Practical Applications
+#### X. Integration and Practical Applications
 1. **Developing a Personal Practice**
    - Assessment of individual resonance
    - Creating sustainable practice rhythms
@@ -191,12 +191,12 @@ If you'd prefer, visit [the site](https://sites.libsyn.com/499103) OR subscribe 
    - Organizational applications
    - Educational settings
 
-### XI. Conclusion
+#### XI. Conclusion
 - Common elements across traditions
 - Key principles for modern practitioners
 - Future directions in ego-transcendence practice
 
-### XII. References and Resources
+#### XII. References and Resources
 - Academic studies and clinical research
 - Primary textual sources
 - Contemporary teachers and organizations
