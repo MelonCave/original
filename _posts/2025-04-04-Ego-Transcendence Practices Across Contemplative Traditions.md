@@ -156,42 +156,48 @@ Implications of **the J-0-Y principle of ego transcendance.** J-O-Y, J for Jesus
    - Fasting and purification elements
    - Integration practices
 
-2. **Sweat Lodge Ceremonies**
+2. [**Sweat Lodge Ceremonies**](#2-sweat-lodge-ceremonies)
    - Ritual elements and structure
    - Community aspects of the practice
    - Symbolism of ego-death and rebirth
 
-3. **Sacred Plant Ceremonies**
+3. [**Sacred Plant Ceremonies**](#3-sacred-plant-ceremonies)
    - Traditional contexts and safeguards
    - Ritual structures for transcendence
    - Integration practices
 
-4. **Communal Dance and Rhythm Practices**
+4. [**Communal Dance and Rhythm Practices**](#4-communal-dance-and-rhythm-practices)
    - Trance dance traditions
    - Drumming circles
    - Sustained movement practices
 
 #### [VII. Contemporary Secular Approaches](#vii-contemporary-secular-approaches-1)
 
-1. **Flow State Cultivation**
+1. [**Flow State Cultivation**](#1-flow-state-cultivation)
    - Structured challenge-skill balancing
    - Attention training practices
    - Environmental design for flow
 
-2. **Psychedelic-Assisted Therapies**
+2. [**Psychedelic-Assisted Therapies**](#2-psychedelic-assisted-therapies)
    - Clinical protocols and findings
    - Preparation and integration practices
    - Relationship to traditional methods
 
-3. **Sensory Deprivation**
+3. [**Sensory Deprivation**](#3-sensory-deprivation)
    - Flotation tank practices
    - Darkness retreats
    - Silent retreats
 
-4. **Nature Connection Practices**
+4. [**Nature Connection Practices**](#4-nature-connection-practices)
    - Forest bathing (Shinrin-yoku)
    - Wilderness solitude protocols
    - Sensory awareness exercises
+
+5. [**Mindfulness-Based Interventions**](#5-mindfulness-based-interventions)
+   - **Mindfulness-Based Stress Reduction (MBSR)**
+   - **Mindfulness-Based Cognitive Therapy (MBCT)**
+   - **Acceptance and Commitment Therapy (ACT)**
+   - **Compassion-Focused Approaches**
 
 #### IX. Cultural Context and Adaptation
 1. **Ethics and Preparation**
