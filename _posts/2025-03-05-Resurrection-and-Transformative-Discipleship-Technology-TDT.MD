@@ -214,23 +214,7 @@ Lent is a good time for challenging or pushing oneself a bit to think about impr
 
 3. How might your practice of redemptive remembering help others find meaning and hope in their own difficult histories?
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-### 17. True and False Comfort -- March 24 (continued)
+### 17. True and False Comfort -- March 24 
 
 2. How has the comfort of the Holy Spirit, described as "the Comforter" ([John 14:16 KJV](https://www.bibleref.com/John/14/John-14-16.html)), proved more lasting than the temporary relief of addiction?
 
