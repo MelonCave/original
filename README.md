@@ -1,6 +1,10 @@
 The other posts and content might be relevant or useful for some time, but on December 18th, 2025, I am moving on to the mdBook version of the MelonCave Personal Knowledge Mgmt system as a basis for the MelonCave podcast.
 
-## The ORIGINAL MelonCave content was about autodidactic training
+MelonCave is about ***caving in the melon*** of that personal demon who wants us to to quit ... it's really about overcoming the bad habits and addictions of being ourselves. The solution is going to be about the AA/Celebrate Recovery process, to humble ourselves, acknowledging a higher power, using every weapon in our arsenal to ***caving in the melon*** of that personal demon who wants us to to give up and just go along with the easy, quickie bandaid fixes. This is not easy of course, because it's personal and involves attacking our love of those personal habits, addictions, behaviors that that are stopping us from taking greater responsibility for developing better open source ways *to program ourselves ... so that we may BETTER train ourselves.*
+
+## The ORIGINAL MelonCave content was about autodidactic training and going forward we delve deeper into cognitive fitness and overcoming the bad habits of being ourselves.
+
+We certainly have not abandoned autodidactic training ... in fact, that that the basis of our examination of cognitive fitness and taking better advantage of our knowledge/research into of topics like neuroplasticity.
 
 1) Do your own introductory noodling around ... use Wikipedia, Pubmed, ConnectedPapers ... but READ ... avoid YouTube channels and podcasts like the PLAGUE ... READ, READ, READ. Wire your brain for READING ... while you DO the hands-on reps.
 
