@@ -1,4 +1,6 @@
-## Autodidactic Training
+The other posts and content might be relevant or useful for some time, but on December 18th, 2025, I am moving on to the mdBook version of the MelonCave Personal Knowledge Mgmt system as a basis for the MelonCave podcast.
+
+## The ORIGINAL MelonCave content was about autodidactic training
 
 1) Do your own introductory noodling around ... use Wikipedia, Pubmed, ConnectedPapers ... but READ ... avoid YouTube channels and podcasts like the PLAGUE ... READ, READ, READ. Wire your brain for READING ... while you DO the hands-on reps.
 
